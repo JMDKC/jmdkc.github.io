@@ -9,7 +9,7 @@ It's based around two themes: her return to the black and white patterns that ma
 
 What they have in common is formal rigour, the impression of movement and disorientation. The works arguably form an inquiry into the constituent elements of painting. Or maybe they're very superior decorations.
 
-![Cascando](/assets/riley-zwirner-0118.png)
+![Cascando](/Assets/riley-zwirner-0118.png)
 
 The large black and white canvases - and huge wall painting - on the ground floor show a triangle pattern. But this time with a single curved side to each, as if an interference. The effect is like radio static, animating the shapes. Maybe because I have astigmatism, it seemed to have a border of an accent colour on the curved edge. They are literally hard to look at, impossible to focus on. A couple of my fellow observers blinked, stretched their eyes, rubbed them, tried to re-focus. And then gave up, I guess.
 
