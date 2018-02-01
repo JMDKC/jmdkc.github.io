@@ -7,11 +7,6 @@ New year, new blockbuster at Zwirner. This time, it's Op Art queen Bridget Riley
 
 It's based around two themes: her return to the black and white patterns that made her name in the 60s, and discs.
 
-
-//
-
-David Zwirner is pleased to present recent work from the last four years by British artist Bridget Riley, her third solo exhibition with the gallery. Spanning three floors of the 24 Grafton Street location in London, the exhibition includes wall paintings and works on canvas as well as a group of related studies that focus on two themes: works in black-and-white and the disc. The works on view both extend and rework the artist’s previous investigations of these motifs in new ways. Riley is associated with the go-ahead 60s, with black and white strobing patterns, with psychadelia, with what was 'now' 50 years ago. That's unfair, as in the intervening years she's kept on creating, moving towards colour and more organic shapes.
-
 What they have in common is formal rigour, the impression of movement and disorientation. The works arguably form an inquiry into the constituent elements of painting. Or maybe they're very superior decorations.
 
 ![Cascando](/assets/riley-zwirner-0118.png)
