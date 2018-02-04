@@ -4,7 +4,7 @@
  <title>Artangled</title>
  <link href="http://localhost:4000/atom.xml" rel="self"/>
  <link href="http://localhost:4000/"/>
- <updated>2018-02-01T22:42:06+00:00</updated>
+ <updated>2018-02-04T20:09:38+00:00</updated>
  <id>http://localhost:4000</id>
  <author>
    <name>Joseph Clift</name>
@@ -13,27 +13,40 @@
 
  
  <entry>
-   <title>Bridget Riley, Recent Paintings 2014 - 2017</title>
-   <link href="http://localhost:4000/2018/01/26/bridget-riley-recent-paintings/"/>
+   <title>Piero Dorazio, Chromatic Fantasies (1948-82) | Tornabuoni Art</title>
+   <link href="http://localhost:4000/2018/02/04/dorazio-tornabuoni/"/>
+   <updated>2018-02-04T00:00:00+00:00</updated>
+   <id>http://localhost:4000/2018/02/04/dorazio-tornabuoni</id>
+   <content type="html">&lt;p&gt;Showing in the depths of an interminable winter, this &lt;a href=&quot;http://www.tornabuoniart.com/current-exhibitions.html&quot;&gt;blast of colour, at Tornabuoni until springtime&lt;/a&gt;, comes as a welcome relief – even a joy.&lt;/p&gt;
+
+&lt;p&gt;Dorazio isn’t exactly a heavy hitter in the pantheon of post war Italian painting. In fact, this is billed as his “first London show in a generation” (though he was a big part of &lt;a href=&quot;http://mazzoleniart.com/elenco_espositori/balla-dorazio-zappettini-the-light-in-motion/&quot;&gt;a group show up the road at Mazzoleni&lt;/a&gt; last year). He gave the Futurist tropes of bustle and movement a new spin in the 50s, after a formative meeting with the then-elderly Giacomo Balla. At Tornabuoni, there are a couple of small, almost figurative early works that are obviously indebted to the early 20th century master. But Dorazio soon moved on to create a style of his own.&lt;/p&gt;
+
+&lt;p&gt;&lt;img src=&quot;/Assets/dorazio-tornabuoni.jpg&quot; alt=&quot;Tre Acque 2&quot; /&gt;&lt;/p&gt;
+
+&lt;p&gt;What brings the works together is their use of colour. Dorazio wanted to capture light in his paint: in bright and uniform hues, in strobing and waving patterns and, as the years passed, on an increasingly large scale. The top floor of this exhibition is dominated by three huge canvases from the 70s: my favourite was 1972’s &lt;em&gt;Tre Acque 2&lt;/em&gt;: a dense, wide network of blastingly bright colour, with none of the segments overlapping – and the canvas showing through at each intersection.&lt;/p&gt;
+
+&lt;p&gt;&lt;em&gt;Damocle&lt;/em&gt; (1968) &lt;a href=&quot;http://www.tornabuoniart.fr/images/piero_dorazio_damocle_1968.jpg&quot;&gt;changes the orientation&lt;/a&gt;, with uniform diagonal strokes pointing downwards, streaking through the tall, narrow canvas to meet the ground. Again, the pattern is almost, but not quite, uniform. These later works are great feats of technical skill: in order to leave the canvas sections exposed, they seem to have been applied in a single layer. Though, for some reason, and unlike the small early paintings, they’re unsigned.&lt;/p&gt;
+
+&lt;p&gt;I couldn’t help comparing Dorazio’s colours and patterns with the Bridget Riley works &lt;a href=&quot;http://artangled.com/2018/01/26/bridget-riley-recent-paintings/&quot;&gt;currently on show at Zwirner&lt;/a&gt;. Both artists worked on a large scale and tend towards abstraction and repeating patterns. Both are defined by their use of colour. Both, in fact, participated in &lt;a href=&quot;https://www.moma.org/calendar/exhibitions/2914&quot;&gt;the famous Responsive Eye exhibition at MOMA&lt;/a&gt; in 1965. But where Riley aims for intellectual enquiry, a reduced palette and clinical repetition, Dorazio’s patterns and shapes are more wide-ranging, more organic – sometimes even a bit unevenly applied – and a lot more fun.&lt;/p&gt;
+</content>
+ </entry>
+ 
+ <entry>
+   <title>Bridget Riley, Recent Paintings 2014 - 2017 | David Zwirner</title>
+   <link href="http://localhost:4000/2018/01/26/riley-zwirner/"/>
    <updated>2018-01-26T00:00:00+00:00</updated>
-   <id>http://localhost:4000/2018/01/26/bridget-riley-recent-paintings</id>
+   <id>http://localhost:4000/2018/01/26/riley-zwirner</id>
    <content type="html">&lt;p&gt;New year, new blockbuster at Zwirner. This time, it’s Op Art queen Bridget Riley, &lt;a href=&quot;https://www.davidzwirner.com/exhibitions/recent-paintings-2014-%E2%80%93-2017&quot;&gt;in a mini-retrospective of (mainly) work from the past four years&lt;/a&gt;.&lt;/p&gt;
 
-&lt;p&gt;It’s based around two themes: her return to the black and white patterns that made her name in the 60s, and discs.&lt;/p&gt;
+&lt;p&gt;It’s based around two themes: her return to the black and white patterns that made her name in the 60s, and her more recent disc paintings. What the two styles have in common is formal rigour, the impression of movement and disorientation. You could say her work, taken as a whole, form an inquiry into the constituent elements of painting. Or you could say that, taken individually, they make very superior decorations.&lt;/p&gt;
 
-&lt;p&gt;//&lt;/p&gt;
+&lt;p&gt;&lt;img src=&quot;/Assets/riley-zwirner-0118.png&quot; alt=&quot;Cascando&quot; /&gt;&lt;/p&gt;
 
-&lt;p&gt;David Zwirner is pleased to present recent work from the last four years by British artist Bridget Riley, her third solo exhibition with the gallery. Spanning three floors of the 24 Grafton Street location in London, the exhibition includes wall paintings and works on canvas as well as a group of related studies that focus on two themes: works in black-and-white and the disc. The works on view both extend and rework the artist’s previous investigations of these motifs in new ways. Riley is associated with the go-ahead 60s, with black and white strobing patterns, with psychadelia, with what was ‘now’ 50 years ago. That’s unfair, as in the intervening years she’s kept on creating, moving towards colour and more organic shapes.&lt;/p&gt;
+&lt;p&gt;The large black and white canvases - and huge wall painting - on the ground floor are based around a triangle pattern: triangles with two straight sides and a wavy side. The effect is like radio static, animating the shapes. Maybe because I have astigmatism, it seemed to have a border of an accent colour on the curved edge. They are literally hard to look at, impossible to focus on. A couple of my fellow observers blinked, stretched their eyes, rubbed them, tried to re-focus. And then gave up, I guess.&lt;/p&gt;
 
-&lt;p&gt;What they have in common is formal rigour, the impression of movement and disorientation. The works arguably form an inquiry into the constituent elements of painting. Or maybe they’re very superior decorations.&lt;/p&gt;
+&lt;p&gt;Intellectual inquiry or pretty pattern? Some grumpy critics &lt;a href=&quot;http://www.independent.co.uk/arts-entertainment/art/features/read-between-the-lines-are-bridget-rileyrsquos-paintings-really-fine-art-1040278.html&quot;&gt;accuse her of making merely decorative art&lt;/a&gt; that doesn’t reward deeper study. Though they might be hard to look at, the works do, for me at least, reward closer inspection. For one thing, the paintstrokes are amazing feats of technical skill: having been put on by hand, they are amazingly even and uniform. (It’s not by Riley’s hand, either: she’s been open about having used assistants to put her ideas onto canvas since finding her signature style in the early 60s.) Though she does sign them: on the bottom-right side, on the edge of the canvas facing outward.&lt;/p&gt;
 
-&lt;p&gt;&lt;img src=&quot;/assets/riley-zwirner-0118.png&quot; alt=&quot;Cascando&quot; /&gt;&lt;/p&gt;
-
-&lt;p&gt;The large black and white canvases - and huge wall painting - on the ground floor show a triangle pattern. But this time with a single curved side to each, as if an interference. The effect is like radio static, animating the shapes. Maybe because I have astigmatism, it seemed to have a border of an accent colour on the curved edge. They are literally hard to look at, impossible to focus on. A couple of my fellow observers blinked, stretched their eyes, rubbed them, tried to re-focus. And then gave up, I guess.&lt;/p&gt;
-
-&lt;p&gt;That has led some grumpy critics to accuse her of making (decorative) art that doesn’t reward deeper study. The paintstrokes are amazing feats of technical skill: having been put on by hand, they are amazingly even and uniform. (It’s not by Riley’s hand, either: she’s been open about having used assistants to put her ideas onto canvas since finding her signature style in the early 60s.) Though she does sign them: on the bottom-right side, on the edge of the canvas facing outward, and in exactly the same position from paintings in this show from both 1961 and 2015.&lt;/p&gt;
-
-&lt;p&gt;The upper floors are the ‘Measure for Measure’ series &lt;a href=&quot;http://maxhetzler.com/exhibitions/bridget-riley-measure-measurenew-disc-paintings-2017/press-en/&quot;&gt;also shown at Max Hetzler in Paris last year&lt;/a&gt;: coloured disks, again with a large wall painting and smaller canvases. Though at the Zwirner show, unlike there, they were contextualised by a couple of stunning early works. The highlight’s back on the ground floor though: the large triangle pictures - neither for sale - are called ‘Quiver’ and ‘Cascando’. Overall, the show feels like a real event. Something for recent times, not a 60s curio.&lt;/p&gt;
+&lt;p&gt;The upper floors are the ‘Measure for Measure’ series &lt;a href=&quot;http://maxhetzler.com/exhibitions/bridget-riley-measure-measurenew-disc-paintings-2017/press-en/&quot;&gt;also shown at Max Hetzler in Paris last year&lt;/a&gt;: coloured discs, again with a large wall painting and smaller canvases. Though at the Zwirner show, unlike there, they were contextualised by a couple of stunning early works. The highlight’s back on the ground floor though: the large triangle pictures - neither for sale - called ‘Quiver’ and ‘Cascando’. Overall, the show feels like a real event. Something for recent times, not a 60s curio.&lt;/p&gt;
 
 &lt;p&gt;&lt;em&gt;Bridget Riley: Recent Paintings 2014 - 2017 is at David Zwirner (London). January 19 — March 10, 2018.&lt;/em&gt;&lt;/p&gt;
 </content>
