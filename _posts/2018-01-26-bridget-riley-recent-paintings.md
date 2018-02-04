@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bridget Riley, Recent Paintings 2014 - 2017
+title: Bridget Riley, Recent Paintings 2014 - 2017 | David Zwirner
 ---
 
 New year, new blockbuster at Zwirner. This time, it's Op Art queen Bridget Riley, [in a mini-retrospective of (mainly) work from the past four years](https://www.davidzwirner.com/exhibitions/recent-paintings-2014-%E2%80%93-2017).
