@@ -9,6 +9,6 @@ Von Calhau! is a collective project of two artists from Porto, who mainly work w
 
 It's solid yet gaseous. A bit more surreal than scary, despite the evil red eyes projected onto the ceiling, and the monsterish growls playing in a loop and filling the room.
 
-The pair don't have much of an online presence: a deliberate choice on the part of the artists, apparently. Not even an Instagram account, guys? So Portuguese to act too cool for the internet, anyway. Though 
+The pair don't have much of an online presence: a deliberate choice on the part of the artists, apparently. Not even an Instagram account, guys? So typically Portuguese to act too cool for the internet, anyway.
 
 Back at the Kunstraum, there are a few other works on paper tacked to the wall: a strategically blacked-out Disney comic strip, which shows the interesting variety of Portuguese language onomatopeia ("Tomp!" "Ufa!" "Uóóóóóóóóóóó!" "Ih, Ih!"). And lastly, a photo of the graffiti tag itself.
