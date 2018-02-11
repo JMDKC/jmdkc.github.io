@@ -3,7 +3,7 @@ layout: post
 title: Von Calhau! MANCHA NEGRA VOLTA A ATACAR | Kunstraum
 ---
 
-Von Calhau! is a collective project of two artists from Porto, who mainly work with sound and video. Inspired by a 1980s-era graffiti tag seen on a wall in Lisbon (the [title of this show](http://kunstraum.org.uk/)), in English: "Black Blob Back to Attack". It was originally based on a Disney character, [the Phantom Blot](https://en.wikipedia.org/wiki/Phantom_Blot), one of Mickey Mouse's many enemies. Anyway, that character, which originally appeared in a 1930s comic strip, doesn't really resemble the strange black vinyl inflatable, filling most of a dingy room off Old Street, pulsing slowly, its seams gaffa-taped and its ends stuck to vents in the floor.
+Von Calhau! is a collective project of two artists from Porto, who mainly work with sound and video. [This show](http://kunstraum.org.uk/) was inspired by a 1980s-era Lisbon graffiti tag: in English, "Black Blob Back to Attack". The tag, in turn, was inspired by a Disney character, [the Phantom Blot](https://en.wikipedia.org/wiki/Phantom_Blot), one of Mickey Mouse's many enemies. Anyway, that character, which originally appeared in a 1930s comic strip, doesn't really resemble the strange black vinyl inflatable, literally a black blob, filling most of a dingy room off Old Street, pulsing slowly, its seams gaffa-taped and its ends stuck to vents in the floor.
 
 ![Black Blob](/Assets/von-calhau-kunstraum.jpg)
 
