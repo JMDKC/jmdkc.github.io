@@ -7,7 +7,7 @@ Von Calhau! is a collective project of two artists from Porto, who mainly work w
 
 ![Black Blob](/Assets/von-calhau-kunstraum.jpg)
 
-It's solid yet gaseous. A bit more surreal than scary, despite the evil red eyes projected onto the ceiling, and the monsterish growls playing in a loop and filling the room.
+It's solid yet gaseous. A bit more surreal than scary, despite the evil red eyes projected onto the ceiling, and the monsterish growls playing in a loop and filling the room. Much more black blob than phantom blot!
 
 The pair don't have much of an online presence: a deliberate choice on the part of the artists, apparently. Not even an Instagram account, guys? So typically Portuguese to act too cool for the internet, anyway.
 
