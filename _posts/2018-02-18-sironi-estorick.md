@@ -7,7 +7,7 @@ Mario Sironi was a poet of the grimy and growing suburbs of Milan. In the inter-
 
 There are two really fine examples in [the Estorick's latest show, subtitled 'Modern Works from the Pinacoteca di Brera'](https://www.estorickcollection.com/exhibitions/the-enchanted-room-modern-works-from-the-pinacoteca-di-brera). This is the first time many of these paintings and sculptures, donated by collectors Emilio and Maria Jesi, have been shown outside of Italy. And it's nice to see them outside of their cramped and dingy corridor, tacked on to the back of the Milanese gallery's otherwise very grand, stony rooms.
 
-The collectors' relationship with Sironi is complicated: Emilio Jesi was a dedicated anti-Fascist, and Sironi became more and more involved with the regime during the 1930s, producing a variety of (terrible) monumental works. By the following decade, his had work turned almost unreadably dark and stodgy. Sironi's juvinilia is also very derivative, flirting with Futurist and Metaphysical tropes. But these little city scenes, and the very particular 20th century moment they capture, are totally distinctive, and perfectly apt.
+The collectors' relationship with Sironi is complicated: Emilio Jesi was a dedicated anti-Fascist, and Sironi became more and more involved with the Mussolini regime during the 1930s. By the following decade, his wartime work turned almost unreadably dark and stodgy. Sironi's juvinilia is also  derivative, flirting with Futurist and Metaphysical tropes. But none of that matters: these little city scenes are what will last.
 
 ![Urban Landscape with Truck](/Assets/sironi-estorick-1.jpg)
 
