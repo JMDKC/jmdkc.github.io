@@ -3,17 +3,17 @@ layout: post
 title: The Enchanted Room | Estorick Collection
 ---
 
-Mario Sironi was a poet of the grimy and growing suburbs of Milan. He made a series of small, thickly worked 'Urban Landscapes', close-cropped, bleak city scenes of factories, smokestacks and apartment blocks in bursts, in the inter-war years.
+Mario Sironi was a poet of the grimy and growing suburbs of Milan. In the inter-war years, he made a series of small, thickly worked 'Urban Landscapes', close-cropped, bleak city scenes of factories, smokestacks and apartment blocks.
 
-There are two really fine examples in [the Estorick's latest show, subtitled 'Modern Works from the Pinacoteca di Brera'](https://www.estorickcollection.com/exhibitions/the-enchanted-room-modern-works-from-the-pinacoteca-di-brera): paintings and sculptures donated to Milan's most famous art museum by collectors Emilio and Maria Jesi. 
+There are two really fine examples in [the Estorick's latest show, subtitled 'Modern Works from the Pinacoteca di Brera'](https://www.estorickcollection.com/exhibitions/the-enchanted-room-modern-works-from-the-pinacoteca-di-brera). This is the first time many of these paintings and sculptures, donated by collectors Emilio and Maria Jesi, have been shown outside of Italy. And it's nice to see them outside of their cramped and dingy corridor, tacked on to the back of the Milanese gallery's otherwise very grand, stony rooms.
 
-This is first time a major part of the Jesi collection has been shown outside of Italy. And it's nice to see them outside of their cramped and dingy corridor, tacked on to the back of the otherwise very grand Pinacoteca di Brera. The collectors' relationship with Sironi is complicated: Emilio Jesi was a dedicated anti-Fascist, and Sironi became more and more involved with the regime during the 1930s, producing a variety of (terrible) monumental works.
+The collectors' relationship with Sironi is complicated: Emilio Jesi was a dedicated anti-Fascist, and Sironi became more and more involved with the regime during the 1930s, producing a variety of (terrible) monumental works. By the following decade, his had work turned almost unreadably dark and stodgy. Sironi's juvinilia is also very derivative, flirting with Futurist and Metaphysical tropes. But these little city scenes, and the very particular 20th century moment they capture, are totally distinctive, and perfectly apt.
 
 ![Urban Landscape with Truck](/Assets/sironi-estorick-1.jpg)
 
-After an early flirtation with Futurism and Metaphysical art - work in the Estorick show features a shiny new truck and an androgynous mannequin figure - Sironi turned to his city scenes. He also became closely associated with the more conservative, backward-looking Novecento artists.
+By the time he started painting the new city suburbs, Sironi was becoming closely associated with the Novecento artists - who set themselves apart from their Futurist siblings with their respect for the past, and their ambivalence for the new.
 
-Perhaps that's why, in contrast to his peers, he saw new urban development, and new technology, as a threat. This is clear in 'Urban Landscape with Truck' (1919/20). It's early evening in the city, with the sky a slightly chemical turquoise. In the background, there's a crane:, and three monolithic buildings.
+Perhaps that's why, in contrast to his less conservative peers, Sironi saw new urban development, and new technology, as a threat. This is clear in 'Urban Landscape with Truck' (1919/20). It's early evening in the city, with the sky a slightly chemical turquoise. In the background, there's a crane:, and three monolithic buildings.
 
 In the foreground, a sinister silhouetted truck, moving right to left. And, in the middle, a big, blank, dark brown wall. These are the bleak industrial outskirts. The buildings, the wall, the truck, are all new. But they already show signs of decay. The windows are black rimmed, maybe with soot. The truck is a shadow.
 
