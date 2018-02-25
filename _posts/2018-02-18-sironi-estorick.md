@@ -1,11 +1,11 @@
 ---
 layout: post
-title: The Enchanted Room: Modern Works from the Pinacoteca di Brera | Estorick Collection
+title: The Enchanted Room | Estorick Collection
 ---
 
 Mario Sironi was a poet of the grimy and growing suburbs of Milan. He made a series of small, thickly worked 'Urban Landscapes', close-cropped, bleak city scenes of factories, smokestacks and apartment blocks in bursts, in the inter-war years.
 
-There are two really fine examples in [the Estorick's latest show](https://www.estorickcollection.com/exhibitions/the-enchanted-room-modern-works-from-the-pinacoteca-di-brera): paintings and sculptures donated to Milan's most famous art museum by collectors Emilio and Maria Jesi. 
+There are two really fine examples in [the Estorick's latest show, subtitled 'Modern Works from the Pinacoteca di Brera'](https://www.estorickcollection.com/exhibitions/the-enchanted-room-modern-works-from-the-pinacoteca-di-brera): paintings and sculptures donated to Milan's most famous art museum by collectors Emilio and Maria Jesi. 
 
 This is first time a major part of the Jesi collection has been shown outside of Italy. And it's nice to see them outside of their cramped and dingy corridor, tacked on to the back of the otherwise very grand Pinacoteca di Brera. The collectors' relationship with Sironi is complicated: Emilio Jesi was a dedicated anti-Fascist, and Sironi became more and more involved with the regime during the 1930s, producing a variety of (terrible) monumental works.
 
