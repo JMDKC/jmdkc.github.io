@@ -7,6 +7,6 @@ For this series of works, based on the 14 stations of the cross, Howard first al
 
 ![Study](/Assets/howard-newport.jpg)
 
-The one repeated motif in these 14 works, breaking up the vertical stripes, is a black box. The origins of this box are made clear in 'Study' (2005), which opens the show. It's based on [the iconic photo[(https://en.wikipedia.org/wiki/Abu_Ghraib_torture_and_prisoner_abuse)] of the tortured, hooded Iraqi prisoner, in US army hands at Abu Ghraib prison. And it's still shocking, even if the global political conversation has moved on from that war. That initial 'shock and awe' assault on Baghdad was 15 years ago - unbelievably.
+The one repeated motif in these 14 works, breaking up the vertical stripes, is a black box. The origins of this box are made clear in 'Study' (2005), which opens the show. It's based on [the iconic photo](https://en.wikipedia.org/wiki/Abu_Ghraib_torture_and_prisoner_abuse) of the tortured, hooded Iraqi prisoner, in US army hands at Abu Ghraib prison. And it's still shocking, even if the global political conversation has moved on from that war. That initial 'shock and awe' assault on Baghdad was 15 years ago - unbelievably.
 
 Howard's black box, mysterious and shadowy, appears in various states of disintegration across the works that follow. That the prisoner was standing in a cruciform position, arms outstretched, hadn't even occurred to me until now, a decade and a half on. 'Via Dolorosa' means "way of pain".
