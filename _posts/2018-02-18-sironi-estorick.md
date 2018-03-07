@@ -26,3 +26,5 @@ There is nothing that isn't man-made in this small painting, but no sign of peop
 The sky is a sick beige; the sign by the railway splitting the residential from the industrial is smudged, illegible. Even the source of light (from the moon?) is a man-made yellow, rather than silver. The railway tracks catch this light with a demonic glitter.
 
 It's not all doom and gloom at the Estorick, though. Elsewhere in the show, there are dreamy metaphysical tableaux from Carra, a lovely pair of Morandi still lives, and - as if in riposte to Sironi's gloom - arch-futurist Boccioni's [1908 self-portrait](http://pinacotecabrera.org/en/collezione-online/opere/self-portrait-boccioni/), with the artist standing proudly, in his smart coat, in front of some shiny new apartment buildings, one still wrapped in scaffolding. The new suburbs haven't yet acquired their sooty coat. There are no trucks on the road. And it's a sunny day.
+
+*The Enchanted Room: Modern Works from the Pinacoteca di Brera is at Estorick Collection (London). 24 January - 8 April 2018.*

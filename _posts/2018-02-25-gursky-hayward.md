@@ -21,3 +21,5 @@ The later work has an icy perfection: the reflective ceiling of that 99 cent sto
 'Schiphol''s sinuous runway approach has a darker counterpart, later in the show. ['Bahrain I' (2005)](http://www.tate.org.uk/art/artworks/gursky-bahrain-i-p79322) is a totally horrifying aerial photograph of a desert Formula 1 track. These ribbons of road are undulating through a sandy hellscape. The black of the track, and sun-blasted white of the sand, is interrupted only by little bright-red roadside Vodafone logos. In the background, there are two helipads. The pitiless light that shines on the track, an absurd man-made imposition on a hostile landscape, is hazy with sand. It represents a global, money-driven, glitzy sporting roadshow. Just-right has turned to just wrong.
 
 But, somehow, the simple pleasure taken by the photographer in the earlier photograph seems like a more radical political stance.
+
+*Andreas Gursky is at Hayward Gallery (London). 25 January - 22 April 2018.*
