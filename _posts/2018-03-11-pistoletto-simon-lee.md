@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Michelangelo Pistoletto: Scaffali | Simon Lee Gallery
+title: Michelangelo Pistoletto - Scaffali | Simon Lee Gallery
 ---
 
 It's OK to be a one-trick pony, if the trick's good enough. Michelangelo Pistoletto is associated with the *arte povera* movement of Italy in the 1960s. He is famous for his 'mirror paintings': large wall-mounted mirrors with painted or printed images on them. The first mirror painting dates from the early 60s. And Pistoletto is still at it, judging by [this show, currently at Simon Lee Gallery](https://www.simonleegallery.com/exhibitions/127/).
