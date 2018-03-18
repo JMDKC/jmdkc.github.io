@@ -5,7 +5,7 @@ title: I Had the Landscape in My Arms | Josh Lilley
 
 What an impressive last few months at Josh Lilley! Tucked away on a quiet corner in Fitzrovia, just next to the old Middlesex Hospital site - and its bonkers neo-Byzantine chapel, that I'm tempted to write a whole separate post about - this little gallery is on a tear.
 
-Late last year came a knockout show from Detroit-based Alex Da Corte. And now, it's a group show of sculpture, using mainly found objects, [with the descriptive title 'I Had the Landscape in My Arms'](http://joshlilleygallery.com/exhibitions/i_had_the_landscape_in_my_arms_2018).
+Late last year came a knockout show from Philadelphia-based Alex Da Corte. And now, it's a group show of sculpture, using mainly found objects, [with the descriptive title 'I Had the Landscape in My Arms'](http://joshlilleygallery.com/exhibitions/i_had_the_landscape_in_my_arms_2018).
 
 ![Installation](/Assets/pichlkostner-josh-lilley.jpg)
 
