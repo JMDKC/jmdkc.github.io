@@ -11,7 +11,7 @@ Late last year came a knockout show from Detroit-based Alex Da Corte. And now, i
 
 The show includes a couple of US artists, but the set of sculptures that really stood out to me came from Austrian-born, London-based Sarah Pichlkostner.
 
-There are three in all, each with the same (baffling) title: *KAY, turned around, KUY, "don't stress me, I gonna have a walk now"* They're sort of figurative: swoops and curves of aluminium. Two on the floor, one wall-mounted. The most complex including silverised glass, gravel, water and dust, the gravel in a neat pile on the floor. The figures are sinuous, sentry-like. Lightweight but grounded.
+There are three in all, each with the same (baffling) title: *KAY, turned around, KUY, "don't stress me, I gonna have a walk now"*. They're sort of figurative, made mainly of swoops and curves of aluminium. Two of the figures (if that's what they are) are stood on the floor; one's wall-mounted. All three incorporate silverised glass, gravel and dust. The most complex of the set is stood on a neat circular pile of gravel in the middle of the floor. The figures are sinuous, sentry-like. Lightweight but grounded. Urban.
 
 The gallery says the various sculptures represent a means of understanding the "landscape of today". To me, these tightly-worked, mysterious objects seemed a concentrated expression of the huge, baffling city surrounding that little corner gallery.
 
