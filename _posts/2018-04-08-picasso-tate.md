@@ -8,7 +8,7 @@ Even though I went in a churlish mood, on a relentlessly rainy Saturday, surroun
 This blitz of beauty and innovation, from one of the 20th century's foundational geniuses, overwhelmed my critical faculties. This must be the blockbuster of the year - maybe the decade - in London, at least.
 Attempting to calm down, I looked away from the sumptuous canvases of his Marie-Therese that dominate the show - and Picasso's year. I looked instead for other, quieter moments, that I could get a grip on and write about. There are many candidates from Picasso's 1932: from the sly adaptations of Grunewald's gangrenous Christ, to the early stirrings of the Minotaur drawings, to his odd fascination with the octopus that took over his summer. I'm choosing instead to look at the short series of photos of Boisgeloup, Picasso's Normandy country house, taken by his friend Brassaï.
 
-![Mystery door](/Assets/picasso-tate.jpg){: .center-image }
+![Mystery door](/Assets/picasso-tate.png)
 
 When the photo-series was taken, Picasso had owned the 18th-century stately home for a couple of years, and used it as a place to escape his Paris fame, and experiment. Three years later, he gave it to his wife Olga as their marriage broke up, and never visited again. His friend the photographer, meanwhile, [seemed less than impressed](http://judithbenhamouhuet.com/report/picasso-a-visit-to-his-secret-studio-in-the-company-of-bernard-picasso/) with his surroundings: "Strange kind of château, most of the rooms devoid of furniture, a few large Picassos here and there on the bare walls," he commented.
 
