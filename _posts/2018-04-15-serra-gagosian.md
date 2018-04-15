@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Picasso 1932 – Love, Fame, Tragedy | Tate Modern
+title: Richard Serra – Rifts | Gagosian
 ---
 
 There's a funny bit in the [recent New Yorker hatchet job on Thomas Heatherwick](http://www.tate.org.uk/whats-on/tate-modern/exhibition/ey-exhibition-picasso-1932-love-fame-tragedy), covering the design superstar's mission to build a centrepiece for the renovation of Hudson Yards, New York City. Richard Serra was also asked to contribute too, but said no. “You know what I do — you know that it’s going to be structural steel, you know it’s going to be monumental. What do I need to show you?” he's quoted as saying, turning down the "billionaire property developer" behind the scheme.
