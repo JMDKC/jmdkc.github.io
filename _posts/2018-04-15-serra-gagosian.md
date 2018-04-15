@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Picasso 1932 – Love, Fame, Tragedy | Tate Modern
+title: Richard Serra – Rifts | Gagosian
 ---
 
 There's a funny bit in the [recent New Yorker hatchet job on Thomas Heatherwick](http://www.tate.org.uk/whats-on/tate-modern/exhibition/ey-exhibition-picasso-1932-love-fame-tragedy), covering the design superstar's mission to build a centrepiece for the renovation of Hudson Yards, New York City. Richard Serra was also asked to contribute too, but said no. “You know what I do — you know that it’s going to be structural steel, you know it’s going to be monumental. What do I need to show you?” he's quoted as saying, turning down the "billionaire property developer" behind the scheme.
@@ -11,9 +11,7 @@ Fair enough, Richard! After all, he's world-famous for his huge, dense, occasion
 
 Collectively known as 'Rifts', these works are unsurprisingly huge - and monolithic. They're almost all black - the gallery calls out their "unrelenting tarmac blackness" - broken up by white triangular slivers. These 'rifts' could be tectonic plates, or layers of deep underground sediments, breaking up seams of coal. Chinks of light in the blackness, laid on thick with paintstick. Blackness in which, close up, you can see different layers catch the light, and craze the edges of the paper. Just like his heavy steel monolithic sculptures, the imperfections break the illusion, and make these otherwise scarily inscrutable objects slightly more accessible.
 
-That said, I didn't feel like I got that close. Maybe it was that Gagosian's ultra-luxe Mayfair gallery, with its squadrons of black-suited security guards, was crowded with Russian ladies of indeterminate age and suspiciously plump lips. Maybe it was the disconcerting fresh paint smell: definitely not coming from the Rifts themselves, rather because it was less than a week after opening when I was visited. Maybe it was the gallery's (typically) po-faced notes on the exhibition, coyly noting that the paintings are on "handmade Japanese paper".
-
-Serra knows his market, I guess: and painstick on paper, rather than heavy steel, makes the perfect luxury object for an oligarch's wall.
+That said, I didn't feel like I got that close. Maybe it was that Gagosian's ultra-luxe Mayfair gallery wasn't just crowded with the usual squadrons of black-suited security guards, but also with Russian ladies of indeterminate age and suspiciously plump lips. Maybe it was the gallery's disconcerting fresh paint smell: definitely not coming from the Rifts themselves, more likely because it was less than a week after opening when I visited. Maybe it was the suspicion that paintstick on "handmade Japanese paper", is a lot easier to get in an oligarch's luxury pad than a heavy steel block.
 
 That's a bit unfair. One thing about Serra. You know what you're getting. What more does he need to show you?
 
