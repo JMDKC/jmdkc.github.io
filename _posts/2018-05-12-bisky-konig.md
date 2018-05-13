@@ -13,7 +13,7 @@ Things not having got much better on this front over the past century, German ar
 
 Bisky's anomie is mainly in the subject of the works, which repeatedly portray the soon-to-be executed. There's a hanging soldier; a pair of jumpsuited Isis prisoners, awaiting the sword; the extremely attractive and doomed Marinus van der Lubbe, starter of the Reichstag fire (three separate paintings, each ravishing); and his Spanish cousin in anarchy Buenaventura Durruti. The exhibition's title work shows disembodied parts - a head here, an arm here, patches of canvas stuck on canvas. Elsewhere, two boys kiss.
 
-I didn't find much anomie in Bisky's execution (sorry) of his little paintings: the skies are Tiepolo-blue, and his male subjects are universally beautiful, with cherub-red lips and shiningly golden skin. Though, on the white walls behind, the violent scene is intensified by crude red rolled-on paint, carelessly slashing towards the ceiling.
+I didn't find much anomie in Bisky's execution (sorry) of his little paintings: the skies are Tiepolo-blue, and his male subjects are universally beautiful, with cherub-red lips and shiningly golden skin. Though, on the white walls behind, the artist's violent scenes are intensified by crude red rolled-on paint, carelessly slashing towards the ceiling.
 
 The friction between the quite beautiful brushwork and the horrific subject matter didn't exactly provoke anomie in this viewer. Instead, I felt invigorated for having been able to see.
 
