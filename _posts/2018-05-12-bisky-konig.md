@@ -3,9 +3,9 @@ layout: post
 title: Norbert Bisky - Anomie | König London
 ---
 
-Anomie is a social state of disintegration: where the norms imposed by religion and the state fall away, and we are left with is our own, never-satisfied desires. It's a word born from the turn of the 20th century, popularised by French sociologist Émile Durkheim, who detected in the modern world an mismatch between personal ideals and the prevailing social standards. Which, naturally, led to unfulfilled desires - and depression. 
+Anomie is a social state of disintegration: where the norms imposed by religion and the state fall away, and all we are left with is our own, never-satisfied desires. It's a word born from the turn of the 20th century and the first rumblings of modernism, popularised by French sociologist Émile Durkheim, who detected in his changing world a mismatch between personal ideals and social standards. Which, naturally, led to unfulfilled desires - and depression. 
 
-Things not having got better over the past century, German artist Norbert Bisky's own personal anomie [is on show at the König gallery](http://koeniglondon.co.uk/exhibitions/12535/norbert-bisky-anomie/about/) right now. 
+Things not having got much better on this front over the past century, German artist Norbert Bisky's own personal anomie [is on show at the König gallery](http://koeniglondon.co.uk/exhibitions/12535/norbert-bisky-anomie/about/) right now. 
 
 ![Installation view](/Assets/bisky-konig.jpg)
 
