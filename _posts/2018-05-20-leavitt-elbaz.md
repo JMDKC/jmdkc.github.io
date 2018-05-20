@@ -5,7 +5,7 @@ title: Western Movie - William Leavitt | Galerie Frank Elbaz
 
 Obviously this little website is more of a personal project than an actual news source, but I've tried not to talk about shows that are actually closed at time of writing! I'll make an exception for this one, though, as it surprised (and haunted) me so much. It's from US artist William Leavitt, who exhibited several small paintings and one video installation [at Frank Elbaz in Paris](https://www.galeriefrankelbaz.com/408/william-leavitt-galerie-frank-elbaz).
 
-I went in the late afternoon, with the gallery workers beginning to gather their things to get their Saturday nights started. The works on display did not match this upbeat mode though!
+I went in the late afternoon yesterday, the final couple of hours of the show. The gallery workers were beginning to gather their things to get their Saturday nights started. The works on display did not match the upbeat atmosphere, though.
 
 ![Installation view](/Assets/leavitt-elbaz.jpg)
 
