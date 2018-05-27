@@ -7,7 +7,7 @@ This spring, the big show in Paris is a vast Delacroix retrospective at the Louv
 
 Why riposte? Consider the differences between the two exhibitions. While Delacroix tends towards monumental paintings of historical scenes and lavish lithographs of canonical novels and plays, Ababri prefers tiny (A4 size, mainly) crayon on paper drawings, showing domestic scenes. Delacroix's lecherous eye was drawn to curvy women; Ababri enjoys muscular men. Those 19th century North African women were firmly contextualised by the artist's own dictatorial desires; Ababri's subjects, on the other hand, are smilingly in on the joke.
 
-![Installation view](/Assets/ababri-praz.jpg)
+![Installation view](/Assets/ababri-praz.jpg){: .center-image }
 
 There's one thing the artists' portraits have in common, though: they like to portray their subjects in bed. (Ababri says that he prefers to draw these works while lying in bed himself.)
 
