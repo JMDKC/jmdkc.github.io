@@ -17,6 +17,8 @@ Ababri's also playing with a whole extra set of stereotypes, beyond the enslaved
 
 In an interview, the artist [points out something I didn't notice at the time](http://larepubliquedelart.com/soufiane-ababri/): that, despite their proud nudity, the men in his drawings tend to be blushing. Is it because their reclining poses are making them feel overly... feminine?
 
-"It is a time when their bodies are getting rid of the social pressure that society demands for them to be male," Ababri said. By blushing, "the body betrays itself in this intimacy of the drawing". Intimacy, that's it! Looking at these little drawings, you feel an intimacy, maybe a complicity, with their subjects. You are invited to share it with them. For Delacroix, as beautiful and impressive as his ladies remain, consent was never an issue.
+"It is a time when their bodies are getting rid of the social pressure that society demands for them to be male," Ababri said. By blushing, "the body betrays itself in this intimacy of the drawing". 
+
+Intimacy, that's it! Looking at these little drawings, you feel an intimacy, maybe a complicity, with their subjects. You are invited to share it with them. For Delacroix, as beautiful and impressive as his ladies remain, consent was never an issue.
 
 *Soufiane Ababri - Haunted Lives is at Praz-Delavallade (Paris). 5 May - 16 June 2018.*
