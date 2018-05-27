@@ -1,0 +1,22 @@
+---
+layout: post
+title: Soufiane Ababri - Haunted Lives | Praz-Delavallade
+---
+
+This spring, the big show in Paris is a vast Delacroix retrospective at the Louvre, which, as is to be expected for the great Romantic painter, is overwhlemingly lush and comprehensive. The show includes Delacroix's sexy genre paintings from his stay in Morocco - those shadowy oil paintings of exotic, inscrutable, yet clearly sexually available women. There's a funny (and much sexier) riposte to all that [across town, in a debut exhibition from Tangiers-born Sofiane Ababri](https://www.praz-delavallade.com/soufiane-ababri-2018/).
+
+Why riposte? Consider the differences between the two exhibitions. While Delacroix tends towards monumental paintings of historical scenes and lavish lithographs of canonical novels and plays, Ababri prefers tiny (A4 size, mainly) crayon on paper drawings, showing domestic scenes. Delacroix's lecherous eye was drawn to curvy women; Ababri enjoys muscular men. Those 19th century North African women were firmly contextualised by the artist's own dictatorial desires; Ababri's subjects, on the other hand, are smilingly in on the joke.
+
+![Installation view](/Assets/ababri-praz.jpg)
+
+There's one thing the artists' portraits have in common, though: they like to portray their subjects in bed. (Ababri says that he prefers to draw these works while lying in bed himself.)
+
+At Praz-Delavallade, the gallery space is painted pink, with the walls broken up by selfie-friendly mirrors with pink messages ('Appearances', for example.) This reflects (ha!) the charming narcissism of Ababri's subjects: a thin blonde boy and an impressively-endowed older Arab man: a self portrait, if Google images is any guide.
+
+Ababri's also playing with a whole extra set of stereotypes, beyond the enslaved and exoticised oriental bodies portrayed by Delacroix. There's also the white gay fantasy of the virile Arab, slyly inverted by one larger drawing, in which Ababri(?) kneels on all fours, ass proudly pointed at the viewer, his face scrunched in joy. And, also, his decision to have his subjects dress in tracksuits and hoodies is surely a deliberate jab at the white bourgeois phobia for banlieu-dwelling Moroccan boy gangs.
+
+In an interview, the artist [points out something I didn't notice at the time](http://larepubliquedelart.com/soufiane-ababri/): that, despite their proud nudity, the men in his drawings tend to be blushing. Is it because their reclining poses are making them feel overly... feminine?
+
+"It is a time when their bodies are getting rid of the social pressure that society demands for them to be male," Ababri said. By blushing, "the body betrays itself in this intimacy of the drawing". Intimacy, that's it! Looking at these little drawings, you feel an intimacy, maybe a complicity, with their subjects. You are invited to share it with them. For Delacroix, as beautiful and impressive as his ladies remain, consent was never an issue.
+
+*Soufiane Ababri - Haunted Lives is at Praz-Delavallade (Paris). 5 May - 16 June 2018.*
