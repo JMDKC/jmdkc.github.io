@@ -3,7 +3,7 @@ layout: post
 title: Soufiane Ababri - Haunted Lives | Praz-Delavallade
 ---
 
-This spring, the big show in Paris is a [vast Delacroix retrospective at the Louvre](https://www.louvre.fr/en/expositions/delacroix-1798-1863), which, as a fittingly lush and lavish tribute to the great Romantic painter. Of course the show includes Delacroix's sexy genre paintings from his stay in Morocco - those shadowy oil paintings of exotic, inscrutable, yet clearly sexually available women. But there's a funny (and much sexier) riposte to all that [across town, in a debut exhibition from Tangiers-born Sofiane Ababri](https://www.praz-delavallade.com/soufiane-ababri-2018/).
+This spring, the big show in Paris is a [vast Delacroix retrospective at the Louvre](https://www.louvre.fr/en/expositions/delacroix-1798-1863), a fittingly lush and lavish tribute to the great Romantic painter. Of course the show includes Delacroix's sexy genre paintings from his stay in Morocco - those shadowy oil paintings of exotic, inscrutable, yet clearly sexually available women. But there's a funny (and much sexier) riposte to all that [across town, in a debut exhibition from Tangiers-born Sofiane Ababri](https://www.praz-delavallade.com/soufiane-ababri-2018/).
 
 Why a riposte? Consider the differences between the two exhibitions. While Delacroix tends towards monumental paintings of historical scenes and lavish lithographs of canonical novels and plays, Ababri prefers modest crayon on paper drawings, showing domestic scenes. Delacroix's lecherous eye was drawn to curvy women; Ababri enjoys muscular men. Those 19th century North African women were firmly contextualised by the artist's own dictatorial desires; Ababri's subjects, on the other hand, are smilingly in on the joke.
 
