@@ -15,6 +15,6 @@ The show notes, reverently respectful for the artist's finickety colour and shap
 
 I loved the energy and dynamism of these little machines, echoing not just constructivism and the Futurists, but also more conservative figures such as Charles Sheeler, and his lovely, careful little paintings of industrial machinery and neatly-organised factories. It was a time after all in which the industrial was symbolic of hope and progress, not pollution and decline.
 
-I'm glad I got to see Kupka's surprising contribution to this sentiment in such calm surroundings.
+I'm glad I got to see Kupka's expression of this very 20th century sentiment in such calm surroundings.
 
 *Kupka: Pionnier de l'abstraction is at the Grand Palais (Paris). 21 March - 30 July 2018.*
