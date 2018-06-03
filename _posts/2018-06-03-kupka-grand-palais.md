@@ -3,7 +3,7 @@ layout: post
 title: Kupka - Pionnier de l'abstraction | Grand Palais
 ---
 
-The [Grand Palais' impressive Kupka retrospective at the Grand Palais](https://www.grandpalais.fr/fr/evenement/kupka) was pretty much empty when I visited late last month. It was probably due to the show being free after 8pm to celebrate some EU "night of museums". But, also, Kupka isn't really an A-lister for either impressionist portraiture or abstraction. Which is a shame, as his is a seriously impressive career, with all its twists and turns, not just from the figurative to the abstract, but from painting into drawings and woodblock prints - and back again.
+The [Grand Palais' impressive Kupka retrospective at the Grand Palais](https://www.grandpalais.fr/fr/evenement/kupka) was pretty much empty when I visited late last month. It was probably due to the show being free after 8pm to celebrate some European Union-sponsored "night of museums". But, also, Kupka isn't really an A-lister for either impressionist portraiture or abstraction. Which is a shame, as his is a seriously impressive career, with all its twists and turns, not just from the figurative to the abstract, but from painting into drawings and woodblock prints - and back again.
 
 Despite the genre-hopping, there's a loss of energy towards the end for me, though. Kupka created an increasingly elaborate - you could say contrived - system of imagery, assigning specific characteristics to different shapes and colours. And that made his work seem increasingly constrained. For example, blue for him was suitable for rectilinear shapes, while red was to be used in blobby and amorphous shapes. Different signs were assigned to different lines: straight, curved or arabesque.
 
