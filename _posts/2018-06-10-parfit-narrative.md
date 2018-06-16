@@ -3,9 +3,9 @@ layout: post
 title: The Mind's Eye - The Photographs of Derek Parfit | Narrative Projects
 ---
 
-Derek Parfit travelled to Venice and St Petersburg on holiday each year for decades. He took many obsessively-composed, haunting photographs of the architecture there, always in low winter light. (They're the subject of [this small but smart show](http://narrativeprojects.com/exhibitions/the-minds-eye/), on right now at Narrative Projects.) He wasn't a pro photographer, though: his day job was... philosophy.
+Derek Parfit travelled to Venice and St Petersburg on holiday each year for decades. He took many obsessively-composed, haunting photographs of the architecture there, always in low winter light. They're the subject of [this small but smart show](http://narrativeprojects.com/exhibitions/the-minds-eye/), on right now at Narrative Projects. He wasn't a pro photographer, though: his day job was... philosophy.
 
-It's hard to think of a philosopher who left behind a visual archive, and it's equally hard to decipher Parfit's philosophical views from these moody, misty photos. Actually, it's very very hard, for this reader at list, to decipher Parfit's philosophical views by [reading about them](http://narrativeprojects.com/wp-content/uploads/2018/03/How-To-Be-Good-The-New-Yorker.pdf)!
+It's hard to think of a philosopher who left behind a visual archive, and it's equally hard to decipher Parfit's philosophical views from these moody, misty photos. Actually, it's very very hard, for this reader at least, to decipher Parfit's philosophical views by [reading about them](http://narrativeprojects.com/wp-content/uploads/2018/03/How-To-Be-Good-The-New-Yorker.pdf)!
 
 ![Installation view](/Assets/parfit-narrative.jpg)
 

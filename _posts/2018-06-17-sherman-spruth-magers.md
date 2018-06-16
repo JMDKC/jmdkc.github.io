@@ -3,9 +3,9 @@ layout: post
 title: Cindy Sherman | Sprüth Magers
 ---
 
-"Get away from me dear, I don't need you anymore!" So said silent screen queen Norma Talmadge to a hopeful autograph seeker, just after she made it to the A-list. Well, according to Hollywood apochrypa anyway. The 20s grande dame is the latest visual inspiration for Cindy Sherman, whose new work [in this show at Sprüth Magers](http://spruethmagers.com/exhibitions/475) is just as funny, off-kilter and subversive as ever.
+"Get away from me dear, I don't need you anymore!" So said silent screen queen Norma Talmadge to a hopeful autograph seeker, just after she made it to the A-list. Well, according to Hollywood apochrypa anyway. The 20s movie grande dame is the latest visual inspiration from iconic shape-shifting photographer Cindy Sherman, whose new work [in this show at Sprüth Magers](http://spruethmagers.com/exhibitions/475) is just as funny, off-kilter and subversive as ever.
 
-Her uncanny chameleonic qualities are just as strong as ever. The original selfie queen, she's been trying on one persona after the other for decades. One surreal 'group shot', with four Shermans, hair lacquered and pouting with pussy-bow lips, posing against a lake, really made me double take. Only the freckled shoulders, and a little expression around the eyes, made me realise these four women are all the same person.
+Her uncanny chameleonic qualities are just as strong as ever. The original selfie queen - actually, that's an insult, more like selfie goddess - Sherman's been trying on one persona after the other for decades. One surreal 'group shot', with four Shermans, hair lacquered and pouting with pussy-bow lips, posing against a lake, really made me double take. Only the freckled shoulders, and a little expression around the eyes, made me realise these four women are all the same person.
 
 ![Installation view](/Assets/sherman-spruth-magers.jpg){: .center-image }
 
