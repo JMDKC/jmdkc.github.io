@@ -7,7 +7,7 @@ title: Cindy Sherman | Sprüth Magers
 
 Her uncanny chameleonic qualities are just as strong as ever. The original selfie queen, she's been trying on one persona after the other for decades. One surreal 'group shot', with four Shermans, hair lacquered and pouting with pussy-bow lips, posing against a lake, really made me double take. Only the freckled shoulders, and a little expression around the eyes, made me realise these four women are all the same person.
 
-![Installation view](/Assets/sherman-spruth-magers.jpg)
+![Installation view](/Assets/sherman-spruth-magers.jpg){: .center-image }
 
 The exagerrated moues, over the top dresses and furs, and brutally pencilled-in eyebrows show that Sherman is going for camp laughs this time around. [Her Instagram is similarly playful these days](https://www.instagram.com/cindysherman/?hl=en) - and is extra-funny for her recent crusade against other users impersonating her and inviting others to pose for a photoshoot. I hope nobody fell for it, considering, as she angrily pointed out, "I don't even work with models!"
 
