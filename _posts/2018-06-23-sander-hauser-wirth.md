@@ -5,7 +5,7 @@ title: August Sander - Men Without Masks | Hauser & Wirth
 
 Nazi Germany wasn't exactly an ideal environment for any artist, and that's particularly true for an artist with a vision as profoundly kind, non-judgmental and humanistic as August Sander. His life's work was a photographic project called "People of the 20th Century", in which he chose as diverse a range of subjects as possible, and took their portraits.
 
-This impressive show at Hauser & Wirth](https://www.hauserwirth.com/hauser-wirth-exhibitions/14504-august-sander-men-without-masks) showcases examples from between 1910 and 1931, a year before Hitler's (elected) rise to power. By 1936, Sander was finished as a public portraitist, with copies of his book impounded. He fled, with most of his negatives, to the countryside during the war, only for his studio to be destroyed in a bombing raid in 1944.
+This [impressive show at Hauser & Wirth](https://www.hauserwirth.com/hauser-wirth-exhibitions/14504-august-sander-men-without-masks) showcases examples from between 1910 and 1931, a year before Hitler's (elected) rise to power. By 1936, Sander was finished as a public portraitist, with copies of his book impounded. He fled, with most of his negatives, to the countryside during the war, only for his studio to be destroyed in a bombing raid in 1944.
 
 ![Installation view](/Assets/sander-hauser-wirth.jpg){: .center-image }
 
