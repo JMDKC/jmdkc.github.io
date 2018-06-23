@@ -7,7 +7,7 @@ Nazi Germany wasn't exactly an ideal environment for any artist, and that's part
 
 Before all that, at the beginning of his career, Sander cut directly against the trends of his day, which were towards stylised, contrived studio shots. Instead, his richly-toned black and white photographs use natural light, the poses of their subjects are spontaneous, and their expressions seem fleeting, as if captured on the fly. They are men - and women - without masks.
 
-![Installation view](/Assets/sherman-spruth-magers.jpg){: .center-image }
+![Installation view](/Assets/sander-hauser-wirth.jpg){: .center-image }
 
 The show notes point to Sander's influence on 20th century greats from Walker Evans to Diane Arbus. This must be in response to Sander's quite unsettling clarity, his relentless refusal to gloss over or soften imperfections. One photo, of a pretty young woman in a Louise Brooks bob, highlights and sharpens her split ends, her slightly sweaty brow. Another, of two boxers, smiling side by side, lays bare the love handles and mottled skin overlaying their impressive muscles.
 
