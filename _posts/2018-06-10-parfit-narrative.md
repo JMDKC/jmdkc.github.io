@@ -17,10 +17,14 @@ He returned to some scenes again and again - at different times, or perhaps diff
 
 It's super-tempting to speculate what drove the philosopher-photographer to undertake his obsessive winter missions was his aphantasia: his inability to form mental images or visualise things. But that seems cheap. Maybe it's better not to try to impart meaning to these cold, rigourous yet dreamy scenes. Maybe it's better just to look and enjoy.
 
-That impression was reinforced in [an event I attended a couple of weeks after seeing the exhibition](https://thephotographersgallery.org.uk/whats-on/talks-and-events/minds-eye-photographs-derek-parfit), at The Photographer's Gallery. Janet Radcliffe-Richards, also an Oxford philosopher and Parfit's widow, was emphatic about separating the photography from the philosophy; trying to find meanings in the former from close reading of the latter.
+That impression was reinforced in [an event I attended a couple of weeks after seeing the exhibition](https://thephotographersgallery.org.uk/whats-on/talks-and-events/minds-eye-photographs-derek-parfit), at The Photographer's Gallery. Janet Radcliffe-Richards, also an Oxford philosopher and Parfit's widow, was emphatic about separating the photography from the philosophy; trying to find meanings in the former from close reading of the latter. In fact, she suggested her husband saw himself as a "critic" rather than an "artist". His sole motivation for taking the photographs was that he found the scenes beautiful, and wanted to make the most beautiful pictures of the scenes possible.
 
 She was also pretty tough on Parfit's aphantasia: following diagnosis, her deeply perfectionist husband "latched on" to it as an explanation for his not being able perfectly to recollect visual scenes. "I think it's a bit of a myth that has grown up around aphantasia and his photography," she added.
 
 This isn't to take away the man from the work, though. One other thing about Parfit I hadn't known is that he was (privately) "scathing" about religion - a reaction to his deeply religious childhood, during which he'd wanted to be a monk. Which might prove an explanation for the fact that his churches - in Oxford, St Petersburg and Venice - tend to be far in the background, shrouded in mist.
+
+Parfit wasn't exactly reclusive about his photography either, handing out copies to friends, and even calling up the Met in New York to ask if they would put them in a show. Radcliffe-Richards didn't mention their response, but she did recall the feedback from one London gallery after Parfit dropped off some prints there.
+
+"Nice holiday pictures."
 
 *The Mind's Eye - The Photographs of Derek Parfit is at Narrative Projects (London). 21 March - 30 July 2018.*
