@@ -7,7 +7,7 @@ I just love Edward Hopper - not sorry, sometimes popular things are also really 
 
 Predictably I loved it, from the gorgeous (and iconic) Hopper etchings, to daffy Helen Torr, to Ralston Crawfords magnificent paintings of bold grain tubs, to weirdo Grant Wood. I spent hours in there, mainly in the room dealing with the Precisionists: a 20s/30s group concerned with the cool, perfect cities. New to me was George Ault, who contributed two perfectly sinister little paintings, including this one, of a factory in Hoboken.
 
-![Installation view](/ault-ashmoleon.jpg)
+![Installation view](/Assets/ault-ashmoleon.jpg)
 
 If Hopper provides the creep factor, Ault amps the feeling up into outright dread. Ault once referred to skyscrapers as the "tombstones of capitalism" and considered the industrialized American city "the Inferno without the fire". He worked during the Depression, and it's no coincidence that his factory is utterly empty of people or, well, industry. Its beauty is in its silence, its very perfection an implied threat.
 
