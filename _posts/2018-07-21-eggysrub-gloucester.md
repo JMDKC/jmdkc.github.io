@@ -3,7 +3,7 @@ layout: post
 title: my name is lettie eggsyrub | Gloucester Road
 ---
 
-This endless hot summer hasn't led to many art discoveries: I've been spending too much time cowering under the blessed cool air of my desk fan: that £20 at John Lewis is the best money I've spent all decade. But one work that's been on my mind a lot, thanks to my daily commute on the District Line, is ['my name is lettie eggsyrub'](https://art.tfl.gov.uk/projects/my-name-is-lettie-eggsyrub/), a silly yet also somehow haunting installation that runs the length of the unused platform at Gloucester Road tube station.
+This endless hot summer hasn't led to many art discoveries. Instead, I've been spending too much time cowering under the blessed cool air of my desk fan: that £20 at John Lewis is the best money I've spent all decade. But one work that's been on my mind a lot, thanks to my daily commute on the District Line, is ['my name is lettie eggsyrub'](https://art.tfl.gov.uk/projects/my-name-is-lettie-eggsyrub/), a silly yet also somehow haunting installation that runs the length of the unused platform at Gloucester Road tube station.
 
 Part of the ongoing Art on the Underground series, and from British artist Heather Phillipson, it's an extravaganza of large boiled eggs, fried eggs, 24 vinyl chicken feet, and video works inspired by old computer game graphics.
 
