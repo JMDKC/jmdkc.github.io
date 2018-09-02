@@ -1,6 +1,6 @@
 ---
 layout: post
-Ed Ruscha - Very | Louisiana
+title: Ed Ruscha - Very | Louisiana
 ---
 
 I can't shake the sneaking suspicion that Ed Ruscha's partly to blame for the inspirational quote pictures that are a solid building block of so many Instagram accounts these days. Which is maybe a bit unfair, but at least pays tribute to the range of his influence.
