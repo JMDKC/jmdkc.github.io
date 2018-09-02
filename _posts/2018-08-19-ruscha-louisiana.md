@@ -13,4 +13,4 @@ His brightly-coloured, wordy prints are what has made Ruscha an icon. But he's a
 
 Showing me, at least, that the artist doesn't need the mass-produced prints, or even the colours. He only needs a pencil. 
 
-*Ed Ruscha - Very is at the Louisiana (Copenhagen) 17 May - 19 August 2018*
+*Ed Ruscha - Very is at the Louisiana (Copenhagen). 17 May - 19 August 2018*
