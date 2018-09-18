@@ -5,7 +5,7 @@ title: Débora Delmar - Corporate Facades | Soft Opening
 
 I'm a Londoner who writes regularly about exhibitions at commercial galleries. This means I spend a lot of my time, in lunch hours and at weekends, walking around the tangle of streets behind the Royal Academy, where designer clothes and jewellery shops and white cubes jostle for space.
 
-Mexican artist Débora Delmar is also familiar with these Mayfair streets, in [this mini show in the mini gallery at Picadilly Circus underground station](http://images.xhbtr.com/v2/pdfs/587/Corporate_Facades.pdf). (It took a long time after Soft Opening "opened" for me to work out that the window is basically all that's accessible in the gallery: that sad shameful feeling when you struggle with a locked gallery door rendered all the sadder for being observed by rush hour crowds.) For her, Mayfair is a place of coffee meetings and suits: there's a stack of steel cafe chairs and tables, and wall works made up of scraps of dark suit material from Savile Row.
+Mexican artist Débora Delmar is also familiar with these Mayfair streets, as they're the subject of [this mini show in the mini gallery at Picadilly Circus underground station](http://images.xhbtr.com/v2/pdfs/587/Corporate_Facades.pdf). (It took a long time after Soft Opening "opened" for me to work out that the window is basically all that's accessible in the gallery: that sad shameful feeling when you struggle with a locked gallery door rendered all the sadder for being observed by rush hour crowds.) For her, Mayfair is a place of coffee meetings and suits: there's a stack of steel cafe chairs and tables, and wall works made up of scraps of dark suit material from Savile Row.
 
 ![Installation view](/Assets/delmar-soft.jpg)
 
