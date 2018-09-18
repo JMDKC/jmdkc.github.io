@@ -7,7 +7,7 @@ During her short and very prolific working life, Francesca Woodman left an indel
 
 She's paired with Egon Schiele in [this exhibition at Tate Liverpool](https://www.tate.org.uk/whats-on/tate-liverpool/exhibition/life-motion-egon-schiele-francesca-woodman). I guess they're thematically linked by their tendency towards self-portraits in bent and sinuous poses (Woodman even had a whole series where she posed with a curled-up eel, just to ram the point home). But walking through the galleries, which alternate between the two artists, the link seems a bit contrived: so much of Schiele's impact comes from his use of colour, while Woodman prefers black and white; his slightly pervy male gaze - all those early portraits of very young girls - contrasts with her innocent love of angels and literary heroines; and his preference for absolutely bare backgrounds contrasts with her connection with her surroundings.
 
-![Installation view](/Assets/woodman-tate.jpg)
+![Installation view](/Assets/woodman-tate.jpeg)
 
 My favourite from the Tate show is above: untitled, like most of the rest. Encased in wallpaper, she disappears into the background. She fades into the background as she burns into our memory.
 
