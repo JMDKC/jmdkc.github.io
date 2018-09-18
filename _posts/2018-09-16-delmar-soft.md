@@ -9,7 +9,7 @@ Mexican artist Débora Delmar is also familiar with these Mayfair streets, as th
 
 ![Installation view](/Assets/delmar-soft.jpg)
 
-This is aimed at being a critique of consumerism and the corporate world, not an original topic for an artist. Supposedly, there's also a pile of free newspapers loaded with business aphorisms that's a part of the show, outside of the vitrine, though I didn't seen any in my visits. I don't blame my fellow commuters for taking them before I could see: it'd likely be a lot more interesting than the Metro.
+This is aimed at being a critique of consumerism and the corporate world, not an original topic for an artist. Supposedly, there's also a pile of free newspapers loaded with business aphorisms that's a part of the show, outside of the vitrine, though I haven't see any on the occasions I've passed by. I don't blame my fellow commuters for taking them before I could see: it'd likely be a lot more interesting than the Metro.
 
 Her Mayfair isn't that recognisable: I can pick up a free newspaper anywhere in London, and you'd go to Canary Wharf and the City to see Savile Row suits. Mayfair to me is a place of exciting and surprising gallery shows, of which this isn't one.
 
