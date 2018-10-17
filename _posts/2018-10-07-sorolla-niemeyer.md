@@ -15,6 +15,6 @@ Well, almost always. There's a fascinating mini-show in a side gallery of Soroll
 
 ### Other highlights
 
-Based in Oviedo for this trip, I also checked out [the permanent collection of the city's fine arts museum](http://www.museobbaa.com/en/collection/permanent-collection/), featuring very fine (and hunger-inducing) Luis Melendez still lives, and a set of 12 Apostle portraits from El Greco's studio: their long white talons all the master's work. In Gijón, I checked out the [Museo Barjola](http://www.museobarjola.es/es/portada.asp), collecting the work of Juan Barjola, whose mid-20th century work seems a combination of 30s Picasso and 40s Bacon.
+Based in Oviedo for this trip, I also checked out [the permanent collection of the city's fine arts museum](http://www.museobbaa.com/en/collection/permanent-collection/), featuring very hunger-inducing Luís Melendez still lives, and a set of 12 Apostle portraits from El Greco's studio: their long white talons are all the master's work, though. In Gijón, I went to the [Museo Barjola](http://www.museobarjola.es/es/portada.asp), collecting the work of Juan Barjola, whose mid-20th century paintings seem to combine bits from 30s Picasso and 40s Bacon.
 
 *Pedro Masaveu: Pasión por Sorolla is at Centro Niemeyer (Avilés). 28 June 2018 - 6 January 2019*
