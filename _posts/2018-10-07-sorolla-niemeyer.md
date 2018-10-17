@@ -5,7 +5,7 @@ title: Pedro Masaveu - Pasión por Sorolla  | Centro Niemeyer
 
 This large(ish) show is made up of work's from the entirety of Joaquin Sorolla's career, amassed by the titular collector. There are [45 paintings in all on show](http://www.niemeyercenter.org/agenda/2422/lorca-se-hace-msica-en-el-centro-niemeyer-con-un-concierto-del-ciclo-suena-la-cpula.html), presented in strict chronological order in transparent frames, as though they are floating in the middle of the domed gallery. (There's a whole separate post I could have written about the utter weirdness of this empty and echoing Jetsons-style, Oscar Niemeyer designed, cultural centre, stranded in an estury, next to a train track and a main road, in a sleepy Asturian coastal town.)
 
-Sorolla's known for his lyrical, and rather sentimental, beach scenes. His generous, loose, thick brush worries over the textures of sunlit water, sails and skin. Occasionally to quite gorgeous effect, as in 'Cosiendo la vela' from 1904, in which picturesque fishermen sew sails on the beach towards sundown, the sand cast in reddish hues.
+Sorolla's known for his lyrical, and rather sentimental, beach scenes. His generous, loose, thick brush worries over the textures of sunlit water, sails and skin. Occasionally to quite gorgeous effect, as in 'Cosiendo la vela' from 1904, in which fishermen sew sails on the beach towards sundown, the sand cast in reddish hues.
 
 ![Installation view](/Assets/sorolla-niemeyer.jpg)
 
