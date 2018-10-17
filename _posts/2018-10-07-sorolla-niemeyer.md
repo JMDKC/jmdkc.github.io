@@ -13,7 +13,7 @@ The rest of the works hit on his other themes: naked children playing in the wav
 
 Well, almost always. There's a fascinating mini-show in a side gallery of Sorolla's 'Notas de Color', small works on cardboard. Each was painted in Asturias. As their collective name suggests, the use of colour's the thing here: the brownish green hills immediately evocative of the ones my ALSA coach passed through on my way to the museum. Such rich suggestions from so few brushstrokes!
 
-###Other highlights
+### Other highlights
 
 Based in Oviedo for this trip, I also checked out [the permanent collection of the city's fine arts museum](http://www.museobbaa.com/en/collection/permanent-collection/), featuring very fine (and hunger-inducing) Luis Melendez still lives, and a set of 12 Apostle portraits from El Greco's studio: their long white talons all the master's work. In Gijón, I checked out the [Museo Barjola](http://www.museobarjola.es/es/portada.asp), collecting the work of Juan Barjola, whose mid-20th century work seems a combination of 30s Picasso and 40s Bacon.
 

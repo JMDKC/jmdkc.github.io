@@ -16,7 +16,7 @@ More kindly is Nash's land work. His most famous, ['Wooden Boulder'](https://www
  
 Just goes to show. You can master nature by cutting and burning, but, eventually, it will take back control.
 
-###Other Highlights
+### Other Highlights
 
 Nearby, I went to the [Vitra Campus in Weil am Rhein](https://www.vitra.com/en-gb/campus), a bizarre (but wonderful) architectural wonderland, featuring Zaha Hadid's first building - a fire station - and local boys Herzog & de Meuron's Schaudepot, in which, among a lot else, is the Eames archive. And a reproduction of the Eamses disappointingly grotty offices.
 
