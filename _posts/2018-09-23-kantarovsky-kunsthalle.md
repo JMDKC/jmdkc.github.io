@@ -20,6 +20,6 @@ Kantarovsky's clearly a major talent. Simultaneously lush, creepy and funny, I h
 
 Elsewhere in Basel, I saw [a fun bee-themed group show at Kunsthaus Baselland](https://kunsthausbaselland.ch/ausstellungen/beehave), featuring Pep Vidal's arresting pencil depictions of swarms, and a (wonderful-smelling) Jan Holz installation of honeycomb pieces on a mirrored platform. I saw my first Gruünewald - a tiny gangrenous Crucifixion - and the world's best set of Holbeins at [Kunstmuseum Basel](https://kunstmuseumbasel.ch/)'s seriously impressive permanent collection. 
 
-I didn't get to many commercial galleries, but did catch a fun light-themed show, [from Markus Aebersold and Chris Handberg](http://balzerprojects.com/absolute-solids/), at Balzer Projects. And I was thoroughly creeped out by an over-reverant retrospective of that hack Balthus [https://www.fondationbeyeler.ch/en/collection/](at Fondation Bayeler).
+I didn't get to many commercial galleries, but did catch a fun light-themed show, [from Markus Aebersold and Chris Handberg](http://balzerprojects.com/absolute-solids/), at Balzer Projects. And I was thoroughly creeped out by an over-reverant retrospective of that hack Balthus [at Fondation Bayeler](https://www.fondationbeyeler.ch/en/collection/).
 
 *Sanya Kantarovsky: Disease of the Eyes is at Kunsthalle (Basel). 31 August - 11 November 2018*
