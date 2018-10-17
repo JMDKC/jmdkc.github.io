@@ -3,7 +3,7 @@ layout: post
 title: Sanya Kantarovsky - Disease of the Eyes | Kunsthalle Basel
 ---
 
-This Russian-born, New York based artist likes to do his work prone on the ground, with people around to talk to. Stray brush strokes and other little mistakes are usually left in the final painting, to better build up its texture. He mixes oil paint and water, which don't really mix properly. But, despite these quite zany and antic working methods, the subjects of Sanya Kantarovsky's paintings and prints are relentlessly despairing.
+This Russia-born, New York based artist likes to do his work prone on the ground, with people around to talk to. Stray brush strokes and other little mistakes are usually left in the final painting, to better build up its texture. He mixes oil paint and water, which don't really mix properly. But, despite these quite zany and antic working methods, the subjects of Sanya Kantarovsky's paintings and prints are relentlessly despairing.
 
  
 Let's talk about *Seizure*. Like many of the other paintings [currently on show at Kunsthalle Basel](https://www.kunsthallebasel.ch/en/exhibition/sanya_kantarovsky/), it's new work, from 2018, and is suffused in Klein-ish blues. (The gallerist told me that getting that perfect shade of blue is one of Kantarovsky's many obsessions.) A mournful man, or the top half of one at least, emerges from a twilit lake. A naked maybe-woman floats face down in the water, though her butt cheeks are breaking the surface.
