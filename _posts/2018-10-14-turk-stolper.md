@@ -7,7 +7,7 @@ I saw this exhibition, [subtitled 'A Brexit portfolio and other Transit Disaster
 
 The central motif of the various silkscreen prints is a burnt out Ford Transit. Any British observer would recognise the cultural signifier of a white van - home to "White Van Man", a highly Brexity demographic.
 
-![Installation view](/Assets/turk-stolper.jpg)
+![Installation view](/Assets/turk-stolper.jpeg)
 
 The prints themselves owe an obvious debt to Warhol's gloomy 60s prints of car crashes. Though their surface is sprinkled with diamond dusk, a signature of Turk's.
 
