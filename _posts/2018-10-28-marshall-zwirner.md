@@ -19,8 +19,7 @@ With the - surely intentionally bad - abstracts and the auction prices, Marshall
 
 I saw the goofy [Lucy Dodd: Miss Mars](http://www.spruethmagers.com/exhibitions/483), with the works' materials ranging from tobacco to "dragon's blood" at Sprüth Magers. I saw mirrors of all kinds at the stylish [Michelangelo Pistoletto: Origins & Consequences](http://mazzoleniart.com/elenco_espositori/michelangelo-pistoletto-origins-and-consequences/), at Mazzoleni, where a special shout-out goes to his black mirror.
 
-There were monochrome, Duchamp-referencing [Olivier Mosset: Graphic Works]
-(http://lglondon.org/index.php/current/) at Laure Genillard, and a theme-free group show - [Pedro Cabrita Reis Jimmie Durham Cildo Meireles](http://www.sprovieri.com/london/pedro-cabrita-reis-jimmie-durham-cildo-meireles/) at Sprovieri.
+There were monochrome, Duchamp-referencing [Olivier Mosset: Graphic Works](http://lglondon.org/index.php/current/) at Laure Genillard, and a theme-free group show - [Pedro Cabrita Reis Jimmie Durham Cildo Meireles](http://www.sprovieri.com/london/pedro-cabrita-reis-jimmie-durham-cildo-meireles/) at Sprovieri.
  
 More pretentious was [Sublime Hardware](https://www.luxembourgdayan.com/exhibitions/61/press_release_text/) at Luxembourg & Dayan, pairing Pino Pascoli's model tank with a Dan Flavin work with white neon lights. (I'm grouchy because the tank was taped off like it was showing at the Tate, rather than a down-at-heel first floor gallery in a Mayfair back street.)
 
