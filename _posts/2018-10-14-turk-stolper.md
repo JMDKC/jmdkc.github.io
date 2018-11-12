@@ -3,7 +3,7 @@ layout: post
 title: Gavin Turk - White Van Man | Paul Stolper
 ---
 
-I saw this exhibition, [subtitled 'A Brexit portfolio and other Transit Disasters'](http://www.paulstolper.com/artists/portfolio/200-gavin-turk-transit-disasters-2018)Subtitled) at a time when the thoroughly depressing Brexit negotiations were reaching something of a climax.
+I saw this exhibition, [subtitled 'A Brexit portfolio and other Transit Disasters'](http://www.paulstolper.com/artists/portfolio/200-gavin-turk-transit-disasters-2018) at a time when the thoroughly depressing Brexit negotiations were reaching something of a climax.
 
 The central motif of the various silkscreen prints is a burnt out Ford Transit. Any British observer would recognise the cultural signifier of a white van - home to "White Van Man", a highly Brexity demographic.
 
@@ -25,6 +25,6 @@ Joan Jonas's fey and daffy [In the Trees II video installation](https://amandawi
 
 The Lord Duveen tribute show at Lévy Gorvy was a balls-out blockbuster even by that flashy place's standards, pairing mid 20th century furniture with A-list artworks - a Klein sponge here, a Calder mobile there.
 
-Elsewhere, I saw Sean Scully's calming oil on aluminium horizontal band paintings - such a luxurious sheen! -	[at Blain | Southern](https://www.blainsouthern.com/exhibitions/sean-scully-uninsideout/), and Tatiana Trouvé's Navigation Map installation at [Kamel Mennour](http://www.kamelmennour.com/media/10764/tatiana-trouve-prepared-space-navigation-map-london-2018.html).
+Elsewhere, I saw Sean Scully's calming oil on aluminium horizontal band paintings - such a luxurious sheen! - [at Blain Southern](https://www.blainsouthern.com/exhibitions/sean-scully-uninsideout/), and Tatiana Trouvé's Navigation Map installation at [Kamel Mennour](http://www.kamelmennour.com/media/10764/tatiana-trouve-prepared-space-navigation-map-london-2018.html).
 
 *Gavin Turk: White Van Man - A Brexit portfolio and other Transit Disasters is at Paul Stolper (London). 20 September - 20 October 2018*
