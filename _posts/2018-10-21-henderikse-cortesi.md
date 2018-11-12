@@ -19,7 +19,6 @@ I adored Hannah Wilke's tiny yonic sculptures - plus the only two paintings she 
 
 After checking out [a tiny #elenao show](https://www.lamb-arts.com/exhibitions/53/overview/) at Lamb Arts (not really the right word, following the election of Jair Bolsonaro), I took in more Latin misery at White Cube, with Doris Salcedo's [stunning sand-and-water installation](https://whitecube.com/exhibitions/exhibition/doris_salcedo_bermondsey_2018) remembering migrant people drowned in the Mediterranean.
 
-For more light-hearted excess, there was [Anselm Kiefer's six metre high vitrin]
-(https://whitecube.com/exhibitions/exhibition/anselm_kiefer_bermondsey_2018) *Für Vicente Huidobro* (like Salcedo, at White Cube), and Eliseo Mattiacci's *Roma*, 58 moulded aluminium volutes [draped around the Richard Saltoun gallery](https://www.richardsaltoun.com/exhibitions/64/overview/). Apparently, these were inspired by the baroque architecture of the Italian capital.
+For more light-hearted excess, there was [Anselm Kiefer's six metre high vitrine](https://whitecube.com/exhibitions/exhibition/anselm_kiefer_bermondsey_2018) *Für Vicente Huidobro* (like Salcedo, at White Cube), and Eliseo Mattiacci's *Roma*, 58 moulded aluminium volutes [draped around the Richard Saltoun gallery](https://www.richardsaltoun.com/exhibitions/64/overview/). Apparently, these were inspired by the baroque architecture of the Italian capital.
 
 *Jan Henderikse: MINT is at Cortesi (London). 03 October - 10 November 2018*

@@ -25,6 +25,6 @@ More pretentious was [Sublime Hardware](https://www.luxembourgdayan.com/exhibiti
 
 Things improved with [Daniel Silver at Frith Street Gallery](https://www.frithstreetgallery.com/exhibitions/daniel-silver), and his gorgeous mannequins and oryx and marble sculptures. Plaster and wood were the primary materials at a small [Florian Roithmayr show at Tenderpixel]( http://tenderpixel.com/exhibitions/something-infinitely-distant-and-strange).
 
-Finally, I saw Luke William Thompson's moving and immersive video work at [Turner Prize 2018](https://www.tate.org.uk/whats-on/tate-britain/exhibition/turner-prize-2018) at  Tate Britain - he's my tip.
+Finally, I saw Luke William Thompson's moving and immersive video work at [Turner Prize 2018](https://www.tate.org.uk/whats-on/tate-britain/exhibition/turner-prize-2018) at  Tate Britain - he's my tip for the win.
 
 *Kerry James Marshall: History of Painting is at David Zwirner (London). 03 October - 10 November 2018*

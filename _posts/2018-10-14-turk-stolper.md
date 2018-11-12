@@ -23,7 +23,7 @@ This week I also checked out [A New Spirit Then, A New Spirit Now](https://www.a
 
 Joan Jonas's fey and daffy [In the Trees II video installation](https://amandawilkinsongallery.com/exhibitions/112/overview/) is on at Amanda Wilkinson, and I enjoyed her delicate bird paintings. I was totally baffled by [Maggie Lee: Music Videos](http://arcadiamissa.com/maggie-lee/) at Arcadia Missa, though to be honest I always love walking up that grotty timewarp Soho staircase to the gallery.
 
-The Lord Duveen tribute show at Lévy Gorvy was a balls-out blockbuster even by that flashy place's standards, pairing mid 20th century furniture with A-list artworks - a Klein sponge here, a Calder mobile there.
+The [Lord Duveen tribute show at Lévy Gorvy](https://www.levygorvy.com/exhibitions/lord-duveen-my-pictures-never-look-so-marvellous-as-when-you-are-here/) was a balls-out blockbuster even by that flashy place's standards, pairing mid 20th century furniture with A-list artworks - a Klein sponge here, a Calder mobile there.
 
 Elsewhere, I saw Sean Scully's calming oil on aluminium horizontal band paintings - such a luxurious sheen! - [at Blain Southern](https://www.blainsouthern.com/exhibitions/sean-scully-uninsideout/), and Tatiana Trouvé's Navigation Map installation at [Kamel Mennour](http://www.kamelmennour.com/media/10764/tatiana-trouve-prepared-space-navigation-map-london-2018.html).
 
