@@ -16,6 +16,6 @@ Hiro trained with Richard Avedon in America, and shot this photo on a trip home.
 Probably the most spectacular show I saw this week was [Ian Davenport: Colourscapes](https://www.waddingtoncustot.com/exhibitions/120/) at Waddington Custot, where the artist let streaks of acrylic paint drip down his aluminium backdrops and pool on the floor. I was thoroughly turned off by Alex Katz's vapid and creamy-smooth [Coca-Cola Girls](https://www.timothytaylor.com/exhibitions/alex-katz-coca-cola-girls/), with their blank stares, squared-off feet and claw hands - on at Timothy Taylor.
 
 Yun Hyong-Keun is a new name to me, but [Simon Lee is showing](https://www.simonleegallery.com/exhibitions/146/
-) his abstract works in various shades of umber and black.
+) his abstract works, which come in in various shades of umber and black.
 
 *Modern Masters is at Hamilton's (London). 10 September - 23 November 2018*
