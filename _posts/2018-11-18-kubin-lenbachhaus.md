@@ -7,11 +7,11 @@ Alfred Kubin had a pretty standard upbringing, when you consider his predilectio
 
 I found the work pictured below, *Macht* (or, *Power*), the most disturbing of all. A huge powerful sea lion, with an expression somewhere between pride and triumph, 
 
-![Installation view](/Assets/kubin-lenbachhaus/kubin-lenbachhaus.jpg)
+![Installation view](/Assets/kubin-lenbachhaus.jpg)
 
 Elsewhere in the first couple of rooms of the exhibition - much the strongest, dealing with his pen-and-ink drawings following graduation at the turn of the century, til he moved into larger-format, more lyrical watercolours in 1904 - are various other sick scenes. Including a pair of gravediggers, a *Sucking Creature* - an octopus digging its tentacles into a zombified woman’s head, the shadowy desert ritual of *Incantation*, and *A Tortured Man*, looking very much like Kubin himself, squatting naked and firing out a stupendous cable of shit, as a pair of thugs beat him around the head.
 
-![Installation view](/Assets/kubin-lenbachhaus/kubin-lenbachhaus-2.jpg)
+![Installation view](/Assets/kubin-lenbachhaus-2.jpg)
 
 Kubin’s story was that he was inspired to draw these scenes by studying the etchings of Max Klinger, though he has a more famous antecedent in Goya, who also painted from visions. Of course, while they’re really gross, none of Kubin’s visions reach the emotional force of Goya’s *Drowning Dog* - though what else does, really?
 
@@ -24,7 +24,7 @@ What’s more, none of Kubin’s later work - he lived quietly through World War
 ### Other Highlights
 As I was on holiday, it was a bit of an art orgy this week, so what follow isn’t quite a complete list of the shows I saw in Munich.
 
-![Installation view](/Assets/kubin-lenbachhaus/kubin-lenbachhaus-3.jpg)
+![Installation view](/Assets/kubin-lenbachhaus-3.jpg)
 
 Best introduction to an artist that was new to me was [Tom Fecht at Galerie Wittenbrink](http://www.galeriewittenbrink.de/exhibition.html). He’s an ex engineer who took colour photographs of the sea during a total eclipse, and didn’t do any retouching after: leading to some very cool images.
 
