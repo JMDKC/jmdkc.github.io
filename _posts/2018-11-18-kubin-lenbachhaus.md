@@ -1,4 +1,3 @@
-# 2018-11-18-kubin-lenbachhaus
 - - - -
 layout: post
 title: Phantastisch! Alfred Kubin und der Blaue Reiter | Lenbachhaus
