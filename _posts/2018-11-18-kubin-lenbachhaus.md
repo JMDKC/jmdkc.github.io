@@ -9,17 +9,15 @@ I found the work pictured below, *Macht* (or, *Power*), the most disturbing of a
 
 ![Installation view](/Assets/kubin-lenbachhaus.jpg)
 
-Elsewhere in the first couple of rooms of the exhibition - much the strongest, dealing with his pen-and-ink drawings following graduation at the turn of the century, til he moved into larger-format, more lyrical watercolours in 1904 - are various other sick scenes. Including a pair of gravediggers, a *Sucking Creature* - an octopus digging its tentacles into a zombified woman’s head, the shadowy desert ritual of *Incantation*, and *A Tortured Man*, looking very much like Kubin himself, squatting naked and firing out a stupendous cable of shit, as a pair of thugs beat him around the head.
+The first couple of rooms of the exhibition are much the strongest. They deal with his pen-and-ink drawings, made between the end of the 19th century and 1904. Kubin's sick scenes include a pair of gravediggers, a *Sucking Creature* - an octopus digging its tentacles into a zombified woman’s head, the shadowy desert ritual of *Incantation*, and *A Tortured Man*, looking very much like Kubin himself, squatting naked and firing out a stupendous cable of shit, as a pair of thugs beat him around the head.
 
 ![Installation view](/Assets/kubin-lenbachhaus-2.jpg)
 
-Kubin’s story was that he was inspired to draw these scenes by studying the etchings of Max Klinger, though he has a more famous antecedent in Goya, who also painted from visions. Of course, while they’re really gross, none of Kubin’s visions reach the emotional force of Goya’s *Drowning Dog* - though what else does, really?
+Kubin’s story was that he was inspired to draw these scenes in visions, which were themselves inspired by the etchings of Max Klinger. He has a more famous precedent in Goya, who also painted from visions. And the German artist’s drawings had a powerful influence on later masters of the macabre. It’s impossible not to see a hint of Tim Burton’s *Nightmare Before Christmas* in his strange creatures and scenes. There are also murmurings of his Expressionist peers of *Die Brücke* up in Berlin.
 
-The German artist’s drawings had a powerful influence on the century’s aesthetic. It’s impossible not to see a hint of Tim Burton’s *Nightmare Before Christmas* in his strange creatures and scenes. There are also murmurings of his Expressionist peers of *Die Brücke* up in Berlin.
+But, as the title of the exhibition suggests, Kubin was associated - later in his career - with the Kandinsky, Münter and the rest of the *Blaue Reiter* movement, contributing a few drawings to their almanac. On superficial inspection, he doesn’t seem to have much in common with their light-filled, joyfully kinetic paintings. Though he did work more in watercolours, and in a larger format, after the early pen-and-ink period.
 
-But, as the title of the exhibition suggests, Kubin was associated - later in his career - with the Kandinsky, Münter and the rest of the *Blaue Reiter* movement, contributing a few drawings to their almanac. On superficial inspection, he doesn’t seem to have much in common with their light-filled, joyfully kinetic paintings.
-
-What’s more, none of Kubin’s later work - he lived quietly through World War Two, made a living as a book illustrator and died in 1959 - really has the same force as the early drawings. They define him. And, while they portray bad things, that’s no bad thing.
+None of Kubin’s later work - he lived quietly through World War Two, made a living as a book illustrator and died in 1959 - really has the same force as the early drawings. They define him. And, while they portray bad things, that’s no bad thing.
 
 ### Other Highlights
 As I was on holiday, it was a bit of an art orgy this week, so what follow isn’t quite a complete list of the shows I saw in Munich.
