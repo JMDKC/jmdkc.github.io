@@ -3,7 +3,7 @@ layout: post
 title: Phantastisch! Alfred Kubin und der Blaue Reiter | Lenbachhaus
 ---
 
-Alfred Kubin had a pretty standard upbringing, when you consider his predilection for the grotesque. Bouncing between mental health problems, a sexual encounter with a pregnant woman when he was 11, and a (failed) suicide-by-shotgun attempt on his mother’s grave, he found lasting fame after graduating with sickly macabre little pen-and-ink drawings, depicting torture, devils, and death. There’s a great selection on show at [Phantastisch! Alfred Kubin und Der Blaue Reiter](https://www.lenbachhaus.de/ausstellungen/phantastisch-alfred-kubin-und-der-blaue-reiter/), an exhibition currently running at the Lenbachhaus in Munich.
+Alfred Kubin had a pretty standard upbringing, when you consider his predilection for the grotesque. Bouncing between mental health problems, a sexual encounter with a pregnant woman when he was 11, and a (failed) suicide-by-shotgun attempt on his mother’s grave, he found lasting fame just after graduating with sickly macabre little pen-and-ink drawings, depicting torture, devils, and death. There’s a great selection on show at [Phantastisch! Alfred Kubin und Der Blaue Reiter](https://www.lenbachhaus.de/ausstellungen/phantastisch-alfred-kubin-und-der-blaue-reiter/), an exhibition currently running at the Lenbachhaus in Munich.
 
 I found the work pictured below, *Macht* (or, *Power*), the most disturbing of all. A huge powerful sea lion triumphantly lords it over a huge pile of skulls - bird, mammal and possibly human. A mass murderer, now at the top of the heap. And proud of it.
 
