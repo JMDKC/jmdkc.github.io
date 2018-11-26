@@ -21,7 +21,7 @@ d’Hollander loved shadings of blues, powdery greens and pinks. There’s a cal
 
 Could we see in her work the landscapes of the Golden Age, the monolithic blocks of de Stijl, or, earlier, the lush green hills of the Flemish Primitives?  She was definitely  inspired by the countryside that surrounded her studio. 
 
-I hadn’t heard of this painter before I saw the show. I saw from the notes that she died at 29. I only found out later that d’Hollander took her own life. It made me re-think those apparently placid, quiet scenes - as I gave into temptation and began to read something sinister into her placid rural scenes. In my mind’s eye, they became edgy, uncanny.
+I hadn’t heard of this painter before I saw the show. I saw from the notes that she died at 29. I only found out later that d’Hollander took her own life. It made me re-think those landscapes - as I gave into temptation and began to read something sinister into her apparently placid rural scenes. In my mind’s eye, they became edgy, uncanny.
 
 Then I put away those thoughts as inappropriate. It seemed inappropriate to seek out crude biographical explanations from these gorgeous, mysterious paintings.
 
