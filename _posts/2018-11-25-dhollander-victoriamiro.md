@@ -13,9 +13,9 @@ This work, *Mist*, from 1996, is a detail. Maybe a doorframe, maybe a tree, defi
 
 Another work, untitled like most of the others in the show, gives us a slightly broader view.
 
-![installation view](/Assets/dhollander-victoriamiro-2.jpg)
+Yet we’re not entirely sure what we are looking at. The bend of a river, a sandy shore, a hill, a peaty grey sky, a mossy wall, a forest? Taking a breath, and a step back, we realise just how big a punch d'Hollander has packed with so few, carefully chosen, brushstrokes. It's a feeling I had again and again as I walked around the gallery.
 
-Yet we’re not entirely sure what we are looking at. The bend of a river, a sandy shore, a hill, a peaty grey sky, a mossy wall, a forest?
+![installation view](/Assets/dhollander-victoriamiro-2.jpg)
 
 d’Hollander loved shadings of blues, powdery greens and pinks. There’s a calmness and certainty about her skies and paths, forest and water. 
 
