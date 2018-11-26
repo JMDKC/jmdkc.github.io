@@ -7,13 +7,13 @@ Ilse d’Hollander worked in Flanders, and had just one gallery show, in a local
 
 You could call all of the paintings on show “landscapes” of one kind or another. Houses, trees, grass and sky are mainly legible, though sometimes unusually cropped and zoomed in - and therefore abstracted. Sometimes, the zooming and cropping is extreme enough for the viewer to lose themselves in the play of colour and form. She strikes a balance between abstraction and representation that shifts from painting to painting. 
 
-![installation view](/Assets/2018-11-25-dhollander-victoriamiro/dhollander-victoriamiro-1.jpg)
+![installation view](/Assets/dhollander-victoriamiro-1.jpg)
 
 This work, *Mist*, from 1996, is a detail. Maybe a doorframe, maybe a tree, definitely a darker line bisects the work. What are the sinuous black lines breaking the surface of the green and white sections, and is that a figure we see on the left? Or branches and twigs on the right?
 
 Another work, untitled like most of the others in the show, gives us a slightly broader view.
 
-![installation view](/Assets/2018-11-25-dhollander-victoriamiro/dhollander-victoriamiro-2.jpg)
+![installation view](/Assets/dhollander-victoriamiro-2.jpg)
 
 Yet we’re not entirely sure what we are looking at. The bend of a river, a sandy shore, a hill, a peaty grey sky, a mossy wall, a forest?
 
