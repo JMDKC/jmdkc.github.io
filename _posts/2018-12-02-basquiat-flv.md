@@ -15,7 +15,7 @@ His motifs repeat: the crown of thorns, vinyl records, the three pointed crown. 
 
 The paintings on show here are heavily skewed towards 1981-84, with very few from the final four years of Basquiat’s young life. (He was gone at 27 in a drug overdose, a year after Warhol.) The show notes make a valiant effort to claim a 1988 painting, *Exu*, named after an African deity, as some kind of masterpiece. But my patience had snapped by then, so I say it’s a sloppy mess by a worn-out artist running on fumes, the words merging around the murky central figure in a barely differentiated, marshy, cloud.
 
-But the final gallery - a spectacularly uneconomical, conical, uselessly showoff room even by the standards of Frank Gehry, the Fondation’s architect - brought me up short. It features a work from the final year called ‘Riding with Death’, showing a stick figure riding on a skeleton steed - who seems to be dismembering as he runs. This is Basquiat stripped back, losing the colours and the words.
+But the final gallery - a spectacularly uneconomical, conical, uselessly showoff room even by the standards of Frank Gehry, the Fondation’s architect - brought me up short. It features a work from the final year called *Riding with Death*, showing a stick figure riding on a skeleton steed - who seems to be dismembering as he runs. This is Basquiat stripped back, losing the colours and the words.
 
 ![installation view](/Assets/basquiat-flv-2.jpg)
 
@@ -33,7 +33,7 @@ Also at the Fondation Louis Vuitton, I saw a just-as-flashy [Egon Schiele show](
 
 [Miró: La couleur de mes rêves](https://www.grandpalais.fr/en/node/50533) at the Grand Palais was just as impressive, though the artist getting the retrospective, with his crowd-pleasing warmth and joy, could hardly have been more distant. 
 
-“When I’m awake I always dream,” Miró famously said - which you can definitely see in his adorable *Hare’*, on loan from the Guggenheim collection. 
+“When I’m awake I always dream,” Miró famously said - which you can definitely see in his adorable *Hare*, on loan from the Guggenheim collection. 
 
 ![installation view](/Assets/basquiat-flv-3.jpg)
 
