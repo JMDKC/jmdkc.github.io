@@ -39,6 +39,6 @@ There were a couple of big-name photography shows on. First, [Candida Höfer’s
 
 Finally, three artists whose names are new to me. Atul Dodiya, an Indian artist inspired by Morandi who also paints beautiful Fresco-style Hindu deities. ([Also at Templon.](https://www.templon.com/new/exhibition.php?la=en&show_id=641)) Kon Trubkovich, a Russian painter of singularly offbeat and sinister portraits - often themselves projected on deliberately distorted black and white photos ([at VnH](http://vnhgallery.com/exhibitions/kon-trubkovich-minor-demons-22-november-21-december-2018-vnh-gallery/))
 
-And finally Yves Zurstrassen: who paints machine-like patterns through stencils, in the jazzy style of some Saul Bass-scored 50s film credits. [That one was at Xippas](http://www.xippas.com/exhibition/something-else/)
+And finally Yves Zurstrassen: who paints machine-like patterns through stencils, in the jazzy style of some Saul Bass-scored 50s film credits. [That one was at Xippas](http://www.xippas.com/exhibition/something-else/).
 
 *Albert Oehlen: Sexe, religion, politique is at Max Hetzler & Gagosian (Paris). 13 October to 21 December 2018*
