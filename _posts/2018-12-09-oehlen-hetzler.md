@@ -25,7 +25,7 @@ I went to a whole bunch of commercial gallery shows during my trip to Paris, of 
 
 ![installation view](/Assets/oehlen-hetzler-2.jpg)
 
-Another big American beast, Lawrence Weiner,  [was showing at Marian Goodman](https://www.mariangoodman.com/exhibitions/lawrence-weiner-folded-waves-vagues-pliees). I found Sylvie Fleury’s similarly monumental reconstructions of makeup palette, with a delectable sheen of glitter, a nice counterpoint to all that testosterone at [at Thaddeus Ropac’s other gallery in the Marais](https://www.ropac.net/exhibition/palettes-of-shadows).
+Another big American beast, Lawrence Weiner,  [was showing at Marian Goodman](https://www.mariangoodman.com/exhibitions/lawrence-weiner-folded-waves-vagues-pliees). I found Sylvie Fleury’s similarly monumental reconstructions of makeup palettes, with a delectable sheen of glitter, a nice counterpoint to all that testosterone. She showed [at Thaddeus Ropac’s other gallery in the Marais](https://www.ropac.net/exhibition/palettes-of-shadows).
 
 Though maybe things moved a bit too far into whimsy at [Sophie Calles’s show of new work at Perrotin](https://www.perrotin.com/artists/Sophie_Calle/1). This included a photo series and LP in dedication to her dead cat: teeth-clenchingly twee. Across the river, I enjoyed Tatiana Trouvé’s rigorous assemblages of plexiglas, marble and metal [at Kamel Mennour](http://www.kamelmennour.com/media/10830/tatiana-trouve-a-quiet-life.html).
 
