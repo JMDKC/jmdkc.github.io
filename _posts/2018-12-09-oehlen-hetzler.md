@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Albert Oehlen: Sexe, religion, politique | Max Hetzler & Gagosian
+title: Albert Oehlen - Sexe, religion, politique | Max Hetzler & Gagosian
 ---
 
 Albert Oehlen is a difficult artist to love, but an easy artist to admire. This is due to his tendency treat his painting as an intellectual exercise within strict self-imposed boundaries, rather than a vehicle of sensual pleasure. This tendency is on show in a pair of identically- titled exhibitions in two of Paris’ most prestigious private galleries: [Max Hetzler](https://www.maxhetzler.com/exhibitions/albert-oehlen-sexe-religion-politique-2018/press-en/) and [Gagosian](https://gagosian.com/exhibitions/2018/albert-oehlen-sexe-religion-politique/).
