@@ -17,13 +17,13 @@ Also, they really like swimming pools and their paraphernalia. Earlier this mont
 
 While the Paris diving boards and chrome taps were gleamingly antiseptic, the Whitechapel Pool is a little bit grungy, with wooden wall bars, dirty tiles and worn benches around a grime-ringed basin. All pleasantly offset by a single strip of neon on one of the pool’s sides. The reconstruction is almost convincing, though the tiles sound a bit hollow when you knock them.
 
-It seemed a bit more like an Instagram opportunity than a searing social comment at first glance. Though, to be fair, in their Q&A the artists seemed very nice and down to earth, and gave an explanation for this that was modest and surprising: 
+It seemed a bit more like an Instagram opportunity than a searing social comment at first glance. Though, to be fair, in their Q&A the artists seemed very nice and down to earth, and gave an explanation for their avoidance of polemic that was modest and surprising: 
 
 > We don’t mind people coming up with a different perception of our works. We’ve had people coming up with their own interpretations and it’s much better than ours! There’s a certain degree of openness. People can make the ending or the conclusion on their own. I prefer my activism to be outside my art production.  
 
-Elmgreen & Dragset are biting their tongue by not going all out with the politics, I suppose. They made a spectacular and pleasing installation out of quite a sad subject: the privatisation of public leisure. How many residents around the gallery, for whom a Shoreditch House membership isn’t an option, feel like they can afford to go and have a swim in a pool?
+Elmgreen & Dragset are biting their tongue by not going all out with the politics, I suppose. They made a spectacular and pleasing installation out of quite a sad subject: the privatisation of public leisure.
 
-Then again, most of the artists’ audience would be most likely to lounge around that rooftop pool than swim in their local leisure centre.
+Then again, most of the artists’ Whitechapel audience would be more likely to lounge around the pool at Shoreditch House up the road than take a swim in their local leisure centre. So what does it matter?
 
 ### Other Highlights
 
