@@ -21,7 +21,7 @@ Max Hetzler’s show notes fancifully compare the artist to Piet Mondrian - some
 
 ### Other Highlights
 
-I went to a whole bunch of commercial gallery shows during my trip to Paris, of which probably the most objectively impressive was [Monumental Minimal, at Thaddeus Ropac’s barn-like space in Pantin](https://www.ropac.net/exhibition/carl-andre-dan-flavin-donald-judd-sol-lewitt-robert-mangold-robert-morris). All the big Minimal movement names - Flavin, André, LeWitt, Judd- are there. The show’s premise, demonstrating the European influence, via Tatlin and Albers, on this most American of schools, was sound. But I was a bit turned off, as usual, by the heavy macho humourlessness of the art itself.
+I went to a whole bunch of commercial gallery shows during my trip to Paris, of which probably the most objectively impressive was [Monumental Minimal, at Thaddeus Ropac’s barn-like space in Pantin](https://www.ropac.net/exhibition/carl-andre-dan-flavin-donald-judd-sol-lewitt-robert-mangold-robert-morris). All the big Minimal movement names - Flavin, André, LeWitt, Judd - are there. The show’s premise, demonstrating the European influence, via Tatlin and Albers, on this most American of schools, was sound. But I was a bit turned off, as usual, by the heavy macho humourlessness of the art itself.
 
 ![installation view](/Assets/oehlen-hetzler-2.jpg)
 
