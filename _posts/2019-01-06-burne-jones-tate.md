@@ -3,7 +3,7 @@ layout: post
 title: Edward Burne-Jones | Tate Britain
 ---
 
-I went into [this large show](https://www.tate.org.uk/whats-on/tate-britain/exhibition/edward-burne-jones) ready to write off Edward Burne-Jones, along with his fellow Pre-Raphaelites, as total kitsch. But it’s full of annoying reminders of his great popularity - from the start - and the fact that he was an epic do-gooder. Rising to world fame from humble origins, Burne-Jones went into business with Socialist paragon of virtue William Morris to produce mass-market wall-hangings, to go along with his paintings for rich patrons and collectors; he saw no distinction between fine and decorative art.
+I went into [this large exhibition](https://www.tate.org.uk/whats-on/tate-britain/exhibition/edward-burne-jones) ready to write off Edward Burne-Jones as total kitsch. But he resists being dismissed. The show is full of annoying reminders of the artist's great popularity - from the start - and the fact that he was an epic do-gooder. Rising to world fame from humble origins, unlike some of his fellow pre-Raphaelites, Burne-Jones went into business with Socialist paragon of virtue William Morris to produce mass-market wall-hangings, to go along with his paintings for rich patrons and collectors; he saw no distinction between fine and decorative art.
 
 Burne-Jones’ popularity comes not just from the accessibility of his subjects, the pleasure of his colours, but from the fact he could be easily *seen*: from those Morris company tapestry reproductions, to his decision to display at Toynbee Hall - an institution that’s served the East End poor for well over a century - to the fact that so many of the works went to city art collections around the country. Though maybe that also points to his parochialism, given there are so few loans from overseas on the wall at the Tate Britain exhibition.
 
@@ -21,7 +21,7 @@ Only in a room of portraits is the stuff cleared away. I can’t deny the emotio
 
 If you want to see some proper Victorian kitsch, like Burne-Jones with extra Jesus and more fur, check out [Landseer’s Monarch of the Glen](https://www.nationalgallery.org.uk/whats-on/exhibitions/landseers-the-monarch-of-the-glen) at the National Gallery. And if you want some wall hangings that are, unlike Burne-Jones and Morris’, properly highbrow and non-accessible, try Anni Albers’ [collection of samey Modernist wallhangings](https://www.tate.org.uk/whats-on/tate-modern/exhibition/anni-albers) at Tate Modern. I didn’t get much out of either.
 
-Both public museums have much better free shows currently on show, though. I was pretty flabbergasted by the loans brought in for [Lorenzo Lotto: Portraits](https://www.nationalgallery.org.uk/whats-on/exhibitions/lorenzo-lotto-portraits) at the National Gallery - which together made the case for this Renaissance master’s stunning empathy and emotional intensity.
+Both public museums have much better free shows currently on show, though. I was pretty flabbergasted by the loans brought in for [Lorenzo Lotto: Portraits](https://www.nationalgallery.org.uk/whats-on/exhibitions/lorenzo-lotto-portraits) at the National Gallery - which together made the case for the artist's stunning empathy and emotional intensity.
 
 ![Portrait of a man in a felt hat](Assets/burne-jones-tate-2.jpg)
 
