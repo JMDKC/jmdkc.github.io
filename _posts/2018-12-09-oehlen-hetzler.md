@@ -15,7 +15,7 @@ The backgrounds are lividly yellow - too chemical and sickly to be happy sunshin
 
 In some, there is ghostly overpainting of thin yellow paint on top of the black branches. In most, the black paint drips down vertically, like condensation on a window. Taken together, in both medium-sized, high-end galleries, in posh parts of Paris, they have an undeniable power and presence. The titles might seem random, but Oehlen’s line is absolutely controlled.
 
-Max Hetzler’s show notes fancifully compare the artist to Piet Mondrian - something about the planes of his lines - but to me he’s closer to his compatriots Sigmar Polke, in his intentional ugliness that doesn’t quite disguise his craft and skill.
+Max Hetzler’s show notes fancifully compare the artist to Piet Mondrian - something about the planes of his lines - but to me he’s closer to his compatriot Sigmar Polke, in his intentional ugliness that doesn’t quite disguise his craft and skill.
 
 “I see the tree as a program for my work, not just as a motif.”  Oehlen has said. It’s hard to love a program. But, yes, a program is easy to admire if executed well.
 
@@ -29,7 +29,7 @@ Another big American beast, Lawrence Weiner,  [was showing at Marian Goodman](ht
 
 Though maybe things moved a bit too far into whimsy at [Sophie Calle’s show of new work at Perrotin](https://www.perrotin.com/artists/Sophie_Calle/1). This included a photo series and LP in dedication to her dead cat: teeth-clenchingly twee. Across the river, I enjoyed Tatiana Trouvé’s rigorous assemblages of plexiglas, marble and metal [at Kamel Mennour](http://www.kamelmennour.com/media/10830/tatiana-trouve-a-quiet-life.html).
 
-There was a really impressive Burri retrospective [at Tornabuoni Art](https://www.tornabuoniart.fr/alberto-burri.php?lang=en). I’d known the artist for his Dubuffet-like affection for including rough materials - like sacking and pumice - on his canvases, and for his Manzoni-like nihilism, burning his canvases into blackness. The invaluable show notes pointed out that the burlap sacks were actually ubiquitous during World War Two, and Burri’s use of them could well have come from his anger at Italy’s post-war dependence on subsidies. 
+There was a really impressive Burri retrospective [at Tornabuoni Art](https://www.tornabuoniart.fr/alberto-burri.php?lang=en). I’d known the artist for his Dubuffet-like affection for using rough materials - like sacking and pumice - and for his Manzoni-like nihilism, burning his canvases into blackness. The invaluable show notes pointed out that the burlap sacks were actually ubiquitous during World War Two, and Burri’s use of them could well have come from his anger at Italy’s post-war dependence on subsidies. 
 
 ![installation view](/Assets/oehlen-hetzler-3.jpg)
 
