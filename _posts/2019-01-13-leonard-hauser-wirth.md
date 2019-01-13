@@ -7,7 +7,7 @@ Zoe Leonard is an American conceptual artist who took aerial photos of New York 
 
 The artist’s eye gets caught on urban infrastructure; the densely gridded street pattern of the city; worn summer baseball fields, packed back to back and encroached on by houses from all sides; and, most lovingly shot of all, a gleaming rail interchange, the iron and wood of the parallel tracks caught by low light, rendered mysterious by the silver print’s blur. I looked at this wonderful, inscrutable photograph, untitled like most of the others in the show, for a long time.
 
-![](2019-01-13-leonard-hauser-wirth/leonard-hauser-wirth-1.jpg)
+![Leonard](/Assets/leonard-hauser-wirth-1.jpg)
 
 Elsewhere, there are a couple of less interesting nature shots: a meander of a river, shot twice, each time abstracted by a slight motion blur.
 
@@ -17,7 +17,7 @@ Leonard isn’t trying to be polemical, or impose any humanity on the man-made u
 
 [Condo 2019](http://www.condocomplex.org/london/) opened this week in London, and I visited its Cork Street Galleries hub: standouts for me there were Dickon Drury’s gaudy Dutch landscapes and Gili Tal’s fun pretend office doormats.
 
-![](2019-01-13-leonard-hauser-wirth/leonard-hauser-wirth-2.jpg)
+![Lorenzato](/Assets/leonard-hauser-wirth-2.jpg)
 
 Amadeo Luciano Lorenzato is a new name for me, but the Brazilian artist’s [exhibition at David Zwirner](https://www.davidzwirner.com/exhibitions/amadeo-luciano-lorenzato), the first outside his native country, was quite lovely. It features gem-like, and very small, oil on board paintings - using similar techniques to early Renaissance greats Cimabue and Masaccio, who inspired Lorenzato - but this time depicting landscapes of scenes from his home town, Belo Horizonte.
 
