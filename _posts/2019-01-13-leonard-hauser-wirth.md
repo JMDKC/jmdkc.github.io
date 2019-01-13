@@ -11,7 +11,7 @@ The artist’s eye gets caught on urban infrastructure; the densely gridded stre
 
 Elsewhere, there are a couple of less interesting nature shots: a meander of a river, shot twice, each time abstracted by a slight motion blur.
 
-Leonard isn’t trying to be polemical, or impose any humanity on the man-made urban landscapes she depicts. (A tension I’ve noticed in other artists featured here, like [Andreas Gursky](http://artangled.com/2018/02/25/gursky-hayward/) and [Mario Sironi](http://artangled.com/2018/02/18/sironi-estorick/).) But even so, I was moved by the serenity of the perspective, the urban realm, grimy and messy at ground level, revealing hidden patterns and symmetries when shot from a great height.
+Leonard isn’t trying to be polemical, or impose any humanity on the man-made urban landscapes she depicts. (A tension I’ve noticed in other artists featured here previously, such as [Andreas Gursky](http://artangled.com/2018/02/25/gursky-hayward/) and [Mario Sironi](http://artangled.com/2018/02/18/sironi-estorick/).) But even so, I was moved by the serenity of her literally elevated perspective: the urban realm, grimy and messy at ground level, revealing hidden patterns and symmetries when shot from a great height.
 
 ### Other Highlights
 
