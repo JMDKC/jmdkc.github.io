@@ -7,7 +7,7 @@ Austria-born, Berlin-based painter Robert Muntean says he’s inspired by Richar
 
 I’m thinking of Gerstl’s portrait of the family of Arnold Schoenberg, painted while having an affair with the mother of the house, just before discovery, and the painter’s descent into madness and suicide. This carefully posed bourgeois scene is overlaid by crazed slashes of yellows and greens. But Muntean’s paintings, while sharing some compositional and colour similarities, come from a more benign place: magazine photos of late 80s/early 90s rock bands like Jesus & Mary Chain and Sonic Youth.
 
-![Muntean](/Assets/muntean-rosenfeld-1.jpeg)
+![Muntean](/Assets/muntean-rosenfeld-1.jpg)
 
 I loved the decision to show the original photos, torn from the pages - faded and a bit yellowed, maybe processed with a few stray paint strokes around - next to the much larger paintings they inspired. It comes across as a respectful fan’s tribute, complicit with the musicians, supporting and (literally) magnifying them.
 
