@@ -1,6 +1,7 @@
-# 2019-01-27-muntean-rosenfeld
+---
 layout: post
 title: Robert Muntean - Just Like Honey  | Rosenfeld Porcini
+---
 
 Austria-born, Berlin-based painter Robert Muntean says he’s inspired by Richard Gerstl, and there’s definitely something of the Secession-era artist’s taste for the obliterative in his new paintings, which often depicts figures only in outline, slashed by colours, large stretches of canvas left raw. They’re [on show at Rosenfeld Porcini](https://rosenfeldporcini.com/exhibitions/44/overview/) in Fitzrovia at the moment.
 
