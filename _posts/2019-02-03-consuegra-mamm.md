@@ -17,7 +17,7 @@ One mother - or grandma - hoists her child proudly onto the roof of a shiny whit
 
 In [another maternal scene](http://nicolasconsuegra.com/portfolio/uno-de-nosotros-entre-nosotros-con-nosotros/), a young mum leans out of the driving seat, proffering a placid baby in pure-white swaddling clothes. And there’s a young man - or maybe woman, the blur makes it impossible to tell - in a plunging v-neck and flares, leaning against their Renault, proudly possessive.
 
-Consuegra collected the photos in a celebratory press release from Renault back in 2004, and put them together as a benign act, celebrating “middle class lives of that moment, and their sense of ownership of a vehicle that developed a personality of its own”. The R4, after all, had become known in the country as *el carro colombiano*, a much-needed signifier of progress.
+Consuegra culled the original versions of the photos from a celebratory press release from Renault back in 2004, and says he put them together to showcase “middle class lives of that moment, and their sense of ownership of a vehicle that developed a personality of its own”. The R4, after all, had become known in the country as *el carro colombiano*, a much-needed signifier of progress.
 
 So maybe that “sinister” or “eerie” feeling is actually the artist lending a sense of universality to a happy national moment?
 
