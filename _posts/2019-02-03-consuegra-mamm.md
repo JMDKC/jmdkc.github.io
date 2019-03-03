@@ -11,7 +11,7 @@ What do I see, as a foreigner, in these photos? Certainly something different to
 
 The R4 was the first affordable, yet reliable, car in Colombia. Is it gratuitous to reflect that it hit the mainstream during a dark time for the country - unimaginably dark, from the perspective of an impeccably bougie gallery, converted from an old industrial unit, in an exceptionally beautiful and welcoming city?
 
-Is it a leap too far to detect a sinister edge to Consuegra’s decision to subtly blur the old photos: not to illegibility, but enough to cause confusion, or spark a sense of eeriness?
+Is it a leap too far to detect a sinister edge to Consuegra’s decision to blur the old photos: not to illegibility, but enough to cause confusion, or spark a sense of eeriness?
 
 One mother - or grandma - hoists her child proudly onto the roof of a shiny white model, a placid blue sea, all rough waters blurred out of existence, behind. She seems to be smiling, but we can’t be sure. 
 
