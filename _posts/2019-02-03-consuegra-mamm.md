@@ -3,7 +3,7 @@ layout: post
 title: La Vuelta | MAMM
 ---
 
-Shining out from [this group show](http://elmamm.org/Exposiciones/Detalle/Id/1381) in Medellín’s very impressive modern art museum was Nicolás Consuegra’s series of square-format found photos. They depict a show of their own: ordinary families proudly displaying a treasured possession: the Renault 4 or R4, the most popular Colombian car of the 70s and 80s.
+Shining out from [this group show](http://elmamm.org/Exposiciones/Detalle/Id/1381) in Medellín’s very impressive modern art museum was Nicolás Consuegra’s series of square-format found photos. They depict a show of their own: ordinary families proudly displaying their Renault 4 or R4, the most popular Colombian car of the 70s and 80s.
 
 What do I see, as a foreigner, in these photos? Certainly something different to the typical Colombian, who’d be deeply familiar with the shape of this low-cost family hatchback, which became as ubiquitous as the Volkswagen Beetle over in Mexico.
 
