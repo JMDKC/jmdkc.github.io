@@ -1,6 +1,6 @@
 ---
-Layout: post
-Title: Odeón o de la contingencia | Espacio Odeón
+layout: post
+title: Odeón o de la contingencia | Espacio Odeón
 ---
 
 One unusual feature of Bogotá, to these European eyes anyway, is its many tiny, privately run car parks. Tucked into vacant lots between buildings, even in the centre of downtown, they’re either an interesting example of urban ingenuity, or a sad sign of the heaving city’s deep car dependency, despite its luxuriously wide boulevards.
