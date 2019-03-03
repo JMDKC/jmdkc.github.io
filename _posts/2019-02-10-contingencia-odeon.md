@@ -8,7 +8,7 @@ One unusual feature of Bogotá, to these European eyes anyway, is its many tiny,
 I mistook the entrance to [this exhibition](http://espacioodeon.com/odeon-o-de-la-contingencia-2/) for yet another *parqueadero*, so convincing is the illusion. But in fact, Estudio Altiplano and Alejandro Martín Maldonado have reimagined the Espacio Odeón - a fascinating multi-level building that was once a theatre, but is now, stripped back to its concrete skeleton - as a playful recreation of different spaces well known to any Bogotá resident.
 
 ![installation view](/Assets/contingencia-odeon-1.jpg)
-[Image credit: Artishock](http://artishockrevista.com/2019/01/22/espacio-odeon-arquitectura/)
+*[Image credit: Artishock](http://artishockrevista.com/2019/01/22/espacio-odeon-arquitectura/)*
 
 On the ground floor, there’s that initially convincing parking garage, complete with hand-painted exit sign. Up the stairs, a cute winter garden and a swimming pool (a bit less convincing than [Elmgreen   & Dragset’s effort](http://artangled.com/2018/12/16/elmgreen-dragset-whitechapel/) at Whitechapel Gallery last year - but a lot more playful). There’s a mini-football pitch, too.
 
