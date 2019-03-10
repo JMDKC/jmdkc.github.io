@@ -12,7 +12,7 @@ To give a couple of examples that stood out to me: a beautiful 70s plan of Milto
 
 My favourite series of all - again, not the first time I’d seen it, but another work lifted by the context - was Rachel Whiteread’s *Demolished* series.
 
-In the 90s, a bunch of council estates in East London were blown up, as the very first tremors of gentrification radiated east of Upper Street. Whiteread lived in Dalston at the time, and used these rather mournful silverpoint photos to memorialise the explosions.
+In the 90s, a bunch of council estates in East London were blown up, as the very first tremors of gentrification radiated east of Upper Street. Whiteread lived in Dalston at the time, and used these rather mournful black and white photos to memorialise the explosions.
 
 As so often with this artist, there’s an icy detachment from the real world, that renders the familiar new and strange. In this case, a violent event - literally an explosion - becomes something stately, grand and remote.
 
