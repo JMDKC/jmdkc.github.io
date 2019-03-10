@@ -1,6 +1,6 @@
 ---
 layout: post
-Title: Bosco Sodi - Heavens and the Earth | Blain Southern
+title: Bosco Sodi - Heavens and the Earth | Blain Southern
 ---
 
 There are two parts of [this exhibition](https://www.blainsouthern.com/exhibitions/bosco-sodi-heavens-and-the-earth). First the heavens: big black and white paintings, made of ultra-thick paint, cracked in interesting ways, depicting mysterious swirls and bubbles. It’s as if you’re staring at a mountain range from the sky.
