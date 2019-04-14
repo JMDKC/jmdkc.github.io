@@ -7,7 +7,7 @@ Günther Förg was a German painter with quite a forbidding aesthetic - grainy a
 
 Two of them are running at the moment, [one at Max Hetzler](https://www.maxhetzler.com/exhibitions/gunther-forg-intimate-encounter-early-years-2019) and [one at Luxembourg & Dayan](https://www.luxembourgdayan.com/exhibitions/64/works/), and offer a good guide to both types. In the former, I loved the pair of grainy, blown-up, colour washed photos, one of the Villa Malaparte in Capri, the other of the monumental back staircase of the Alte Pinakothek in Munich. Both had a spooky, crime-scene vibe.
 
-![](/Assets/forg-hetzler.jpg)
+![](/Assets/forg-hetzler-1.jpg)
 
 Over at Luxembourg & Dayan, there’s a spectacular grid of the acrylic on lead paintings, all from the late 80s and early 90s. Looking closely, the thin layers of paint over the metal lays bare the shaky, irregular brushstrokes. In bold patches, the metal is unpainted.
 
