@@ -1,6 +1,6 @@
 ---
-Layout: post
-Title: Calder/Miro - Clair de lune | Nahmad Projects
+layout: post
+title: Calder/Miro - Clair de lune | Nahmad Projects
 ---
 
 Alexander Calder and Joan Miró were good friends, with a lot in common. The same goes for the work, too, and [this dreamy little exhibition](http://nahmadprojects.com/exhibition/calder-miro-clair-de-lune/) proves it. Working in Paris, both took the most crowd-pleasing bits of the Surrealist movement they were surrounded with, and expressed it in antic, zany, colourful form. Calder made mobiles, Miró paintings.
