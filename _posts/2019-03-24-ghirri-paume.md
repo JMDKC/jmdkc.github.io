@@ -27,4 +27,4 @@ Here’s a typical example: *Modena 1973*, shot in Ghirri’s hometown. Again, w
 
 I first saw that photo (and first heard that Ghirri was getting a retrospective in the Jeu de Paume) in [a great show at M&L Fine Arts in London](http://www.mlfineart.com/portfolio/homage-to-luigi-ghirri/), a couple of years ago. And coming across it again was like re-encountering an old friend. An old, fascinating, outwardly wealthy and calm, friend with a secret he’d never share.
 
-*Luigi Ghirri: Cartes et Territoires is at Jeu de Paume (Paris).  16 March – 4 May 2019*
+*Luigi Ghirri: Cartes et Territoires is at Jeu de Paume (Paris). 12 February – 2 June 2019*

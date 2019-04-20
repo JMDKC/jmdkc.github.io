@@ -15,4 +15,4 @@ Instead, Apóstol’s dramatis personae are all local drag performers. Staring f
 
 This edge of camp lends the very dignified poses and personas an acrid bitterness. It must be a very alienating and strange experience to be a Venezuelan artist abroad, with bad news coming every day.
 
-*Alexander Apóstol: Venezuelan Pastoral is at Mor Charpentier (Paris).  16 March – 4 May 2019*
+*Alexander Apóstol: Venezuelan Pastoral is at Mor Charpentier (Paris). 16 March – 4 May 2019*
