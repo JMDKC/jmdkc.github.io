@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Luigi Ghirri - Cartes et Territoires l | Jeu de Paume
+title: Luigi Ghirri - Cartes et Territoires | Jeu de Paume
 ---
 
 This [intoxicating exhibition](http://www.jeudepaume.org/index.php?page=article&idArt=3256) provides a panoramic view of a photographer who specialised in the narrowest, closest-cropped scenes possible.
@@ -9,7 +9,7 @@ Luigi Ghirri’s photographs showcase his background as a surveyor, his daily de
 
 ![](/Assets/ghirri-paume-1.jpg)
 
-As befitting his nature as an organised surveyor, the photos are all named in the same format: where they were taken, and when. Organisation and logic were clearly important to the man himself - other works at the Jeu de Paume show reveal that Ghirri kept his bookshelves in strict alphabetical order.
+Order and logic is important. The photos are all named in the same format: where they were taken, and when. It's clearly a personality trait - other works at the Jeu de Paume show reveal that Ghirri kept his bookshelves in strict alphabetical order.
 
 In his writings, Ghirri underlined the importance of portraying what’s already there, without ideology or trickery. “My aim is not to make photographs but rather charts and maps that might at the same time constitute photographs,” he said.
 
