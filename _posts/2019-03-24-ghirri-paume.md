@@ -3,9 +3,9 @@ layout: post
 title: Luigi Ghirri - Cartes et Territoires | Jeu de Paume
 ---
 
-This [intoxicating exhibition](http://www.jeudepaume.org/index.php?page=article&idArt=3256) provides a panoramic view of a photographer who specialised in the narrowest, closest-cropped scenes possible.
+This [intoxicating exhibition](http://www.jeudepaume.org/index.php?page=article&idArt=3256) gives us a panoramic view of a photographer who specialised in narrow, close-cropped scenes.
 
-Luigi Ghirri’s photographs showcase his background as a surveyor, his daily dealings with charts and maps. The exhibition concentrates on his work during the 70s, a time of comparative peace and stability in Italy, his native land, following lean postwar years. Gardens and houses are neat, the roads are smooth, the skies are (usually) blue. The composition of the photographs is all about structure, with horizons, walls and overhead wires framing his scenes. They generally don’t feature people - or if they do, these people aren’t looking or talking to each other. And they usually focus on comfortable suburbs and the accoutrements of placidly consumerist middle class life.
+Luigi Ghirri’s photographs showcase his background as a surveyor, his daily dealings with charts and maps. The exhibition concentrates on his work during the 70s, a time of comparative peace and stability in Italy, his native land, following lean postwar years. Gardens and houses are neat, the roads are smooth, the skies are (usually) blue. The composition of the photographs is all about structure, with horizons, walls and overhead wires framing his scenes. They generally don’t feature people - or if they do, these people aren’t looking at or talking to each other. And they usually focus on comfortable suburbs and the accoutrements of placidly consumerist middle class life.
 
 ![](/Assets/ghirri-paume-1.jpg)
 
@@ -25,6 +25,6 @@ Ghirri found international fame quickly. Having stopped working as a surveyor in
 
 Here’s a typical example: *Modena 1973*, shot in Ghirri’s hometown. Again, we have careful cropping, and intersecting lines, from the shadow of the building in the foreground, to the curb, to the perfectly perpendicular advertising sign - *elf*.  But isn’t there something ineffably strange about those finicky, pyramidal stacks of Elf petrol tins? Don’t they seem like they could be blown over, on a less sunny, still day than Ghirri chose to portray?
 
-I first saw that photo (and first heard that Ghirri was getting a retrospective in the Jeu de Paume) in [a great show at M&L Fine Arts in London](http://www.mlfineart.com/portfolio/homage-to-luigi-ghirri/), a couple of years ago. And coming across it again was like re-encountering an old friend. An old, fascinating, outwardly wealthy and calm, friend with a secret he’d never share.
+I first encountered Ghirri in [a great show at M&L Fine Arts in London](http://www.mlfineart.com/portfolio/homage-to-luigi-ghirri/), a couple of years ago. And coming across him again was like re-encountering an old friend. A well-off, quiet, calm friend with a tantalizing secret. One he’ll never share.
 
 *Luigi Ghirri: Cartes et Territoires is at Jeu de Paume (Paris). 12 February – 2 June 2019*
