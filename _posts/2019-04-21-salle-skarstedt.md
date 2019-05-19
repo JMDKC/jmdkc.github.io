@@ -1,6 +1,6 @@
 ---
 layout: post
-title: David Salle: Musicality and Humour | Skarstedt
+title: David Salle - Musicality and Humour | Skarstedt
 ---
 
 What a lovely palete cleanser this show is! David Salle’s cartoony collage paintings shift and swirl, mixing black-and-white and colour. [https://www.skarstedt.com/gallery-exhibitions/david-salle5](https://www.skarstedt.com/gallery-exhibitions/david-salle5) He focuses in on repetitive depictions of mops, coffee cups, pork chops and other ephemeral, day-to-day objects. He peppers the canvases with slogans and word marks.
