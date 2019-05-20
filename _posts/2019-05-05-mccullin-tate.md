@@ -17,8 +17,6 @@ But the photographer’s humane eye picks out the girl’s smart white coat and 
 
 [Speaking to the Guardian](https://www.theguardian.com/artanddesign/2019/feb/03/don-mccullin-giles-duley-photography-retrospective-tate-interview) ahead of the retrospective, McCullin said: “I get a lot of letters – and you must get the same – saying: ‘I want to be a war photographer’. I say to people that’s fine, but there are just as many wars going on in our cities. If you want to be a war photographer, go out and help yourself.
 
-“I’m more proud of the social pictures I did of poverty in the north of England than I am any of my war pictures.”
-
-These photos certainly made the deepest impression on me.
+“I’m more proud of the social pictures I did of poverty in the north of England than I am any of my war pictures.” In all the photos I saw across the two galleries, this set certainly made the deepest impression on me.
 
 *Don McCullin is at Tate Britain (London). 5 February - 6 May 2019. Don McCullin: Proximity is at Hamiltons (London). 30 January - 11 May 2019*
