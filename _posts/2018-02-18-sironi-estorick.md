@@ -13,15 +13,13 @@ The collectors' relationship with Sironi is complicated: Emilio Jesi was a dedic
 
 By the time he started painting the new city suburbs, Sironi was becoming closely associated with the Novecento artists - who set themselves apart from their Futurist siblings with their respect for the past, and their ambivalence for the new.
 
-Perhaps that's why, in contrast to his less conservative peers, Sironi saw new urban development, and new technology, as a threat. This is clear in 'Urban Landscape with Truck' (1919/20). It's early evening in the city, with the sky a slightly chemical turquoise. In the background, there's a crane:, and three monolithic buildings.
+Perhaps that's why, in contrast to his less conservative peers, Sironi saw new urban development, and new technology, as a threat. This is clear in *Urban Landscape with Truck* (1919/20). It's early evening in the city, with the sky a slightly chemical turquoise. In the background, there's a crane, and three monolithic buildings.
 
 In the foreground, a sinister silhouetted truck, moving right to left. And, in the middle, a big, blank, dark brown wall. These are the bleak industrial outskirts. The buildings, the wall, the truck, are all new. But they already show signs of decay. The windows are black rimmed, maybe with soot. The truck is a shadow.
 
 ![Urban Landscape with Chimney](/Assets/sironi-estorick-2.jpg)
 
-The sense of alienation is still stronger in 'Urban Landscape with Chimney' (1930). It's tempting to see this as the moment that Sironi slipped away into his awful political beliefs: the same beliefs that make him a pretty obscure artist these days.
-
-There is nothing that isn't man-made in this small painting, but no sign of people. The residential block in the foreground is caked in soot. The soot's source is in the background, with four smokestacks, the most distant belching a charcoally stream. The brickwork on the three largest smokestacks is almost obliterated by still more grime.
+The sense of alienation is still stronger in *Urban Landscape with Chimney* (1930). It's tempting to see this as the moment that Sironi slipped away into his dark political beliefs. There is nothing that isn't man-made in this small painting, but no sign of people. The residential block in the foreground is caked in soot. The soot's source is in the background, with four smokestacks, the most distant belching a charcoally stream. The brickwork on the three largest smokestacks is almost obliterated by still more grime.
 
 The sky is a sick beige; the sign by the railway splitting the residential from the industrial is smudged, illegible. Even the source of light (from the moon?) is a man-made yellow, rather than silver. The railway tracks catch this light with a demonic glitter.
 
