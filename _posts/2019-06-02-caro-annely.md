@@ -7,7 +7,7 @@ Despite the epic title, this one is a [small, lovingly-curated show](http://www.
 
 They’re collectively a study in contrasts: the forms balanced between the rectilinear and the curvy; the material combining both reused parts and the purpose-built; the surfaces vary between the smooth and the pitted.
 
-![](/Assets-caro-annely-1.jpg)
+![](/Assets/caro-annely-1.jpg)
 
 What about *Sky Passage (T0179)*, a very recent, three metre high work from 2015. Look at that clean stainless steel, set off by furry old cast iron. Some bits have been painted. Despite its forbidding size and cage-like grids, there’s something lovable in its ungainliness, its lack of symmetry.
 
