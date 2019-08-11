@@ -23,7 +23,7 @@ Ghirri found international fame quickly. Having stopped working as a surveyor in
 
 ![](/Assets/ghirri-paume-2.jpg)
 
-Here’s a typical example: *Modena 1973*, shot in Ghirri’s hometown. Again, we have careful cropping, and intersecting lines, from the shadow of the building in the foreground, to the curb, to the perfectly perpendicular advertising sign - *elf*.  But isn’t there something ineffably strange about those finicky, pyramidal stacks of Elf petrol tins? Don’t they seem like they could be blown over, on a less sunny, still day than Ghirri chose to portray?
+Here’s a typical example: *Modena 1973*, shot in Ghirri’s hometown. Again, we have careful cropping, and intersecting lines, from the shadow of the building in the foreground, to the curb, to the perfectly perpendicular advertising sign - *elf*.  But isn’t there something ineffably strange about those just-so triangular stacks of Elf petrol tins? Don’t they seem like they could be blown over, on a less sunny, still day than Ghirri chose to portray?
 
 I first encountered Ghirri in [a great show at M&L Fine Arts in London](http://www.mlfineart.com/portfolio/homage-to-luigi-ghirri/), a couple of years ago. And coming across him again was like re-encountering an old friend. A well-off, quiet, calm friend with a tantalizing secret. One he’ll never share.
 

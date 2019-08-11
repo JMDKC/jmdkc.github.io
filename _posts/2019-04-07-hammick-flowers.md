@@ -9,7 +9,7 @@ That’s not to say they’re entirely rejecting material culture: in *Walden Po
 
 ![](/Assets/hammick-flowers-1.jpg)
 
-Romantic references abound. There’s something of Caspar David Friedrich in Hammick’s usage of windows as a framing device - as well as the interest in pretty ships. *Poet Dreaming* explicitly apes the pose of Henry Wallis’ dead *Chatterton*, up the road in Tate Britain.
+Romantic references abound. There’s something of Caspar David Friedrich in Hammick’s usage of windows as a framing device - as well as the interest in pretty ships. *Poet Dreaming* explicitly apes the pose of Henry Wallis’ dead *Chatterton*, on permanent show up the road in Tate Britain.
 
 Other works explicitly reference Wordsworth and Walden Pond in their titles.  And, as I mentioned earlier, there seemed to me to be something of that late Romantic’s dark blue and gold views of the Thames by Chelsea bridge in the works’ colour scheme.
 

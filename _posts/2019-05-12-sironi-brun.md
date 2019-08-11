@@ -27,6 +27,8 @@ The final work in the show is *Figures* from 1959, a couple of years before Siro
 
 Sironi was celebrated enough in his home country during his lifetime to have been granted an extensive retrospective at the Venice Biennale, a year after his death in 1961.
 
-Whereas in these small rooms in Mayfair, the gallerist was surprised to see me visit. And it’s not likely I’ll see a retrospective of his in London again for many years. To which I feel an appropriately Sironi emotion: sadness.
+Whereas in these small rooms in an upper-floor private gallery in Mayfair, I got the definite impression that not many people are coming to see the show. The gallerist certainly seemed surprised to see me visit. Piles of a quite lavish exhibition catalogue lay on every available surface. 
+
+It’s not likely I’ll see a retrospective of his in London again for many years, then. To which I feel an appropriately Sironi emotion: sadness.
 
 *Mario Sironi: Signs and Colours is at Brun Fine Art (London). 8 March - 24 May 2019.*
