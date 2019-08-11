@@ -3,7 +3,7 @@ layout: post
 title: Anthony Caro - Seven Decades | Annely Juda Fine Art
 ---
 
-Despite the epic title, this one is a [small, lovingly-curated show](http://www.annelyjudafineart.co.uk/exhibitions/seven-decades-anthony-caro) in a quiet upstairs gallery off Oxford Street. I particularly loved the bigger machine-like works upstairs. 
+Despite the epic title, this one is a [small, lovingly-curated show](http://www.annelyjudafineart.co.uk/exhibitions/seven-decades-anthony-caro) over two floors in a quiet upstairs gallery off Oxford Street. I particularly loved the bigger machine-like works on the upper floor. 
 
 They’re collectively a study in contrasts: the forms balanced between the rectilinear and the curvy; the material combining both reused parts and the purpose-built; the surfaces vary between the smooth and the pitted.
 
