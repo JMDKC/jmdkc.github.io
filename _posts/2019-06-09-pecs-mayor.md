@@ -13,10 +13,12 @@ Every work on show seems lovable. I was reminded of the [big Vasarely retrospect
 
 In the patterns, and the school-like setup, there are also more distant echoes of the Bauhaus, celebrating its 100th anniversary in countless shows around town and around the world.
 
-Here’s the names of the artists involved: Károly Kismányoky (whose *Untitled* work from 1970 is the first image in this post), Sándor Pinczehelyi, Károly Hopp-Halász (the second image, *Radial Enamel*~from~1969), Ferenc Ficzek and Kálmán Szijártó. Their teacher, who helped put the workshop together and introduced them to the factory workers, was Ferenc Lantos.
+Here’s the names of the artists involved: Károly Kismányoky (whose *Untitled* work from 1970 is the first image in this post), Sándor Pinczehelyi, Károly Hopp-Halász (the second image is *Radial Enamel* from1969), Ferenc Ficzek and Kálmán Szijártó. Their teacher, who helped put the workshop together and introduced them to the factory workers, was Ferenc Lantos.
 
 ![](/Assets/pecs-mayor-2.jpg)
 
-Three summers after foundation, the workshop split up. Several of the group got involved in Land Art - it was the 70s after all. I’m very happy to have been made aware of it again, in another place and time.
+Three summers after foundation, the workshop split up. Several of the group got involved in Land Art - it was the 70s after all.
+
+But before they got involved in that earthbound cul-de-sac, I’m very happy they worked together on these lovely enamels. And that this gallery has made us in London, in 2019, aware of it again.
 
 *Pécs Workshop is at Mayor Gallery (London). June 5 - July 31 2019*
