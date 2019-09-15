@@ -11,7 +11,7 @@ That said, now I’ve finally taken the citizenship test, I feel a bit better ab
 
 Is the thought behind the show to inspire us to relate more to the immigrant experience? Maybe that’s problematic, as immigrants will also attend. (My companion at the show, from Colombia, also took the test and scored the passing grade of 18.) Or maybe it’s just generally to promote understanding between cultures, which is a pretty wishy-washy foundation for an art show - but is nevertheless deeply needed in this divided island.
 
-The exhibition also features cooking classes - dumplings - and instructions for making a magic wrong. It’s totally free to enter. Did I enjoy the show, or did I enjoy taking the test?
+The exhibition also features cooking classes - dumplings - and instructions for making a magic wand. It’s totally free to enter. Did I enjoy the show, or did I enjoy taking the test?
 A bit of both.
 
 *Tania Brughera: School of Integration is at Manchester Art Gallery (Manchester). July 5 - September 1 2019*
