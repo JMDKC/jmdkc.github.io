@@ -1,6 +1,6 @@
 ---
-Layout: post
-Title: Tania Brughera - School of Integration | Manchester Art Gallery
+layout: post
+title: Tania Brughera - School of Integration | Manchester Art Gallery
 ---
 
 *Life in the United Kingdom*, otherwise known as the citizenship test, hasn’t been with us long. Introduced in 2005, it has a reputation among both natives and non-natives for its bizarre, irrelevant and difficult questions. I first got introduced to the list at the barbers, when the Turkish and Polish staff peppered me with sample questions which, in the run-up to Brexit, they were all boning up on - and I found myself flummoxed by several of them.

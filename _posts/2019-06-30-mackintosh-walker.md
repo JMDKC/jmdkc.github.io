@@ -1,6 +1,6 @@
 ---
-Layout: post
-Title: Charles Rennie Mackintosh - Making the Glasgow Style | Walker Art Gallery
+layout: post
+title: Charles Rennie Mackintosh - Making the Glasgow Style | Walker Art Gallery
 ---
 
 I’m somebody whose only prior knowledge of Charles Rennie Mackintosh was a font and [a fire](https://www.bbc.co.uk/news/uk-scotland-glasgow-west-47494058), [prior to attending this show](http://www.liverpoolmuseums.org.uk/about/mediacentre/2019/charles-rennie-mackintosh-making-the-glasgow-style.aspx). So, wandering the galleries, I found it all simply revelatory.
