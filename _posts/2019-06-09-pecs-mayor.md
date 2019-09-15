@@ -3,7 +3,7 @@ layout: post
 title: Pécs Workshop | Mayor Gallery
 ---
 
-This exhibition I[s truly lovely](https://www.mayorgallery.com/exhibitions/544/overview/). To a restive, anxious London in summer comes a sweet breeze from the east: from other distant summers. 50 years ago, behind the Iron Curtain, across an ideological divide, and out in the countryside, the Pécs Workshop met.
+This exhibition [is truly lovely](https://www.mayorgallery.com/exhibitions/544/overview/). To a restive, anxious London in summer comes a sweet breeze from the east: from other distant summers. 50 years ago, behind the Iron Curtain, across an ideological divide, and out in the countryside, the Pécs Workshop met.
 
 They were an avant-garde group of five artists in communist Hungary, who met each summer between 1969 and 1971 in Pécs, close to the Croatian… well, Yugoslavian, border. Helped by workers at the local factory, they fused industrial enamel to the discarded iron plates. And the stunningly fresh and vivid patterns they made are now on the walls of the one-room Mayor Gallery. And it feels like a little miracle of compactly curated artistic accomplishment!
 
