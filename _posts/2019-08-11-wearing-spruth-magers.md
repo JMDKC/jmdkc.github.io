@@ -3,9 +3,9 @@ layout: post
 title: New Order - Art, Product, Image 1976-1995 | Sprüth Magers
 ---
 
-The place is quite familiar, rendered strange over the decades. We’re in a shopping centre in Peckham in 1994. Everyone’s dressed in baggy 90s style. If anyone’s carrying a shopping bag, it’s plastic. This being several decades before that multi-story car park down the road got its pink coat of paint and added craft beer and stonebaked pizza outlets, the crowd is mixed but solidly working class. And nobody has a mobile phone, so nobody’s filming the very unusual scene!
+The place is quite familiar, rendered strange over the decades. We’re in a shopping centre in Peckham in 1994. Everyone’s dressed in baggy 90s style. If anyone’s carrying a shopping bag, it’s plastic. This being several decades before that multi-story car park down the road got its pink coat of paint and craft beer outlets, the crowd is solidly ungentrified. And nobody has a mobile phone, so nobody’s filming the very unusual scene - except one camera.
 
-The only camera there is pointing at a very young-looking Gillian Wearing, dancing her clumpy two step right in the middle of the passage way. As I watched, my attention wandered from her and into the shops that surrounded her - that Curry’s with its old, pre-PC World merger font. The gross glass awning, PoMo style so surely less than a decade old, but already grimy.
+In the middle of its frame is a very young-looking Gillian Wearing, dancing a clumpy two step right in the middle of the passage way. As I watched, my attention wandered from her and into the shops that surrounded her - that Curry’s with its old, pre-PC World merger font. The gross glass awning, PoMo style so surely less than a decade old, but already grimy.
 
 ![installation view](/Assets/wearing-spruth-magers-1.jpg)
 
