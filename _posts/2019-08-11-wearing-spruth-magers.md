@@ -1,6 +1,6 @@
 ---
 layout: post
-title: New Order: Art, Product, Image 1976 - 1995 | Sprüth Magers
+title: New Order - Art, Product, Image 1976-1995 | Sprüth Magers
 ---
 
 The place is quite familiar, rendered strange over the decades. We’re in a shopping centre in Peckham in 1994. Everyone’s dressed in baggy 90s style. If anyone’s carrying a shopping bag, it’s plastic. This being several decades before that multi-story car park down the road got its pink coat of paint and added craft beer and stonebaked pizza outlets, the crowd is mixed but solidly working class. And nobody has a mobile phone, so nobody’s filming the very unusual scene!
