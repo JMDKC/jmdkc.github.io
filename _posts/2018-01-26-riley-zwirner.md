@@ -7,7 +7,7 @@ New year, new blockbuster at Zwirner. This time, it's Op Art queen Bridget Riley
 
 It's based around two themes: her return to the black and white patterns that made her name in the 60s, and her more recent disc paintings. What the two styles have in common is formal rigour, the impression of movement and disorientation. You could say her work, taken as a whole, form an inquiry into the constituent elements of painting. Or you could say that, taken individually, they make very superior decorations.
 
-![Cascando](/Assets/riley-zwirner-0118.png)
+![Cascando](/Assets/riley-zwirner-0118.jpg)
 
 The large black and white canvases - and huge wall painting - on the ground floor are based around a triangle pattern: triangles with two straight sides and a wavy side. The effect is like radio static, animating the shapes. Maybe because I have astigmatism, it seemed to have a border of an accent colour on the curved edge. They are literally hard to look at, impossible to focus on. A couple of my fellow observers blinked, stretched their eyes, rubbed them, tried to re-focus. And then gave up, I guess.
 

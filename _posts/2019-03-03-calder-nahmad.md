@@ -7,7 +7,7 @@ Alexander Calder and Joan Miró were good friends, with a lot in common. The sam
 
 They’re both still really popular: the last couple of years having brought major retrospectives for Calder at the Whitney, and Miró at the Grand Palais. The show at Nahmad Projects, a tiny fortress-like space in Mayfair, is, necessarily, much tighter. 
 
-![installation view](/Assets/calder-nahmad-1.png)
+![installation view](/Assets/calder-nahmad-1.jpg)
 
 It’s structured by two pairs, one small and one large. Pictured above is Calder’s *Red Stalk* (1955) and a little Miró oil, *Chien enragé*, from the same year.
 

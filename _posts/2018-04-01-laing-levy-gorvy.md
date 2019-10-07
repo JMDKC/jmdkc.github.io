@@ -7,7 +7,7 @@ This [pocket blockbuster of an exhibition](https://www.levygorvy.com/exhibitions
 
 The advent of Pop Art in the 1960s was all about artists getting into commercial culture, and its mass-produced physical relics. This meant, for Sigmar Polke, Roy Lichtenstein and Gerald Laing, painstakingly painting reproductions of Ben-day dots to render iconic reproductions of pictures they saw in magazines, ads and pulp fiction books. They used their technical excellence to suggest the junkily mass-produced.
 
-![Installation](/Assets/laing-levy-gorvy.png)
+![Installation](/Assets/laing-levy-gorvy.jpg)
 
 Each artist worked to subtly different ends. And it was Laing, the least-known of the three, who stood out for me.
 
