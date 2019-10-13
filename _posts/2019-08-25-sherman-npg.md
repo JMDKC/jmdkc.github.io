@@ -11,7 +11,7 @@ It’s not possible *not* to read meanings into the childhood *Cindy Book*, whic
 
 The budget gets bigger as the years go on, but Sherman keeps her ingenuity, her vim, and her spark. One of the best rooms - stiff competition in this show - is a reproduction of her studio. Which is exactly as you’d expect, an Aladdin’s cave of masks, prosthetics and trinkets.
 
-Such a vast breadth, such a range of expression from a single subject (herself) is Sherman’s achievement, above and beyond the individual works. Usually untitled and carefully numbered, there are about 500 photos in her oeuvre. To call her a “selfie queen”, as the BBC and others have done in reviews of this exhibition, is simultaneously true and highly reductive.
+Such a vast breadth, such a range of expression from a single subject (herself) is Sherman’s achievement, above and beyond the individual works. Usually untitled and carefully numbered, there are about 500 photos in her oeuvre. To call her a “selfie queen”, as the BBC and others have done in reviews of this exhibition, is true but highly reductive.
 
 I’m going to pick out *Cover Girl*, as the National Portrait Gallery has bought all five of the series together since the first time they were shown, in the late 70s. Each shot is a triptych: the original female-fronted magazine cover on the left, Sherman’s best impression of said cover girl in the middle, and the artist’s vampy mockery of the same on the right.
 
