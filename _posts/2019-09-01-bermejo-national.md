@@ -7,7 +7,7 @@ Walking around  [this impressive one-room exhibition](https://www.nationalgaller
 
 There’s an echo of van Eyck and van der Weyden in these artists: their jewel-like clarity; the comparative disinterest in anatomical correctness and the new rules of perspective; the love lavished on different surfaces and materials. My favourite surface of Bermejo’s show was St Michael’s pointy metallic shoes, daintily astride the devil as he braces for the final sword-stroke.
 
-![bartolome bermejo](/Assets/bermejo-nationa-1.jpg)
+![bartolome bermejo](/Assets/bermejo-national-1.jpg)
 *St Michael Triumphing Over the Devil*
 
 According to the show notes, Bermejo never actually saw the Flemish works in situ, but instead studied those paintings that had made it to his native Spain. This close study led to the glorious impracticality of those strings of pearls attached to the saint’s ankles - rendered in mind-bending miniature detail. Not to mention the devil’s eyes and nipples, glowing like red rubies.
