@@ -7,7 +7,7 @@ What a lovely palete cleanser this exhibition is! David Salle’s cartoony colla
 
 They’re generally repainted elements from 1940s cartoons and ad imagery. Salle himself has said he’s aiming for a kind of “free jazz” effect: a pleasant cacophony, with enough underlying structure to hold the attention.
 
-![](/Assets/salle-skarstedt-1.jpeg)
+![](/Assets/salle-skarstedt-1.jpg)
 
 Just like free jazz, the sheer density of elements can seem sometimes to overwhelm the coherency of the whole: the visual rhythms are skewed and shifting. Salle paints quickly, perhaps in an improvisatory way, as can be seen in the very few brush strokes he requires to form his complex scenes.
 

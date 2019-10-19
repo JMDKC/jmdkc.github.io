@@ -18,6 +18,3 @@ I’m going to pick out *Cover Girl*, as the National Portrait Gallery has bough
 It’s all there: the chameleonic shape-shifter, the daffy humour, the sly undertow - just *what* is behind that wink? I adored this room of cover girls, and this show as a whole. I hope she makes it to 1000.
 
 *Cindy Sherman is at National Portrait Gallery (London). June 27 - September 15 2019*
-
-
-#art/artangled
