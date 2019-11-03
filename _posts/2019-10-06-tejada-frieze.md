@@ -7,7 +7,7 @@ I might as well hand in my London art reviewer badge by saying so, but this year
 
 The easiest thing to do in a review with such a variety of potential subjects is to pick out a show that I particularly liked from a non-obvious source. I like the easy way out, so  [here’s Elena Tejada-Herrera](https://frieze.com/fair-programme/elena-tejada-herrera) , represented by the gallery  [80M2 Livia Benavides](https://frieze.com/gallery/80m2-livia-benavides)  in Lima.
 
-![installation view](/Assets/herrera-frieze-1.jpg)
+![installation view](/Assets/tejada-frieze-1.jpg)
 
 Her pink-walled Queen Kong show featured photography, sexy drawings and a video of happy girls in Karate outfits embracing their inner fighter, cheered on by female peers from older generations. For the show, Tejada-Herrera was inspired by French writer Virginie Despentes’ ‘King Kong Theory’, a  [2009 manifesto of feminist](https://www.theguardian.com/books/2009/jan/25/king-king-theory-virginie-despentes)  rage which turns on the plotline of the 1930s giant gorilla movie classic - and it’s particularly helpless heroine.
 
