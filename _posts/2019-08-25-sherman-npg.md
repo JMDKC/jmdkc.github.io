@@ -3,7 +3,7 @@ layout: post
 title: Cindy Sherman | National Portrait Gallery
 ---
 
-This is a  [retrospective in the truest sense](https://www.npg.org.uk/whatson/cindy-sherman/exhibition/) , ranging from the American master photographer’s first ever book, produced at the age of nine, to some of the most recent uber-glossy, expensively-produced photos of the artist as a range of grandes dames. (She  [showed a few of them at a highly enjoyable show at Sprüth Magers last year](http://artangled.com/2018/06/17/sherman-spruth-magers/) .)
+This is a  [retrospective in the truest sense](https://www.npg.org.uk/whatson/cindy-sherman/exhibition/) , ranging from the American master photographer’s first ever book, produced at the age of nine, to some of the most recent uber-glossy, expensively-produced photos of the artist as a range of grandes dames. (She  [showed a few of them at a highly enjoyable show at Sprüth Magers last year](http://artangled.com/2018/06/17/sherman-spruth-magers/).)
 
 It’s not possible *not* to read meanings into the childhood *Cindy Book*, which features family snaps, each with the artist herself carefully circled, and a single phrase: “that’s me”. This total self-focus has guided Sherman’s whole career: her student work, her breakout *Untitled Film Stills*, her hilarious *Cover Girls* series, the dark experiments with fantasy, latex and masks of the 90s, and her move into luxe and fashion in the 21st century.
 
