@@ -1,10 +1,13 @@
-# 2019-10-20-arena-sprovieri
-## Francesco Arena - Cubic Metre of Seawater as a Diagonal | Sprovieri
+---
+layout: post
+title: Francesco Arena - Cubic Metre of Seawater as a Diagonal | Sprovieri
+---
+
 Two shows from Italian artists caught my eye this week. First,  [this exhibition from Franceso Arena](https://www.sprovieri.com/exhibitions/francesco-arena3)  at one of the west end’s least accessible galleries, up a flight of stairs behind Regent Street. Arena makes vaguely arte povera-aligned works, using natural and found materials.
 
 The centrepiece of this show is rather grandiose: exactly as the title suggests, seawater is contained in a metal trough, 13 metres long, oriented diagonally across the largest gallery. Why a cubic metre exactly? Arena tends to use standard measures in his works, as these measures are after all an expression of the man-made upon nature.
 
-![](2019-10-20-arena-sprovieri/VOr9HWMsPLTag0X-NYiFkeSGOYj-uK2VPywAWeMKgPpSomG2n2mTV-X1plb-Tby1Ymu0fIY8-NDwvaUZhFkCwfuIRKTEoc0_sYXrYGsFJ57W6dmUky5LnA5hO3xB9CuNDb870U32.jpg)
+![installation view](/Assets/arena-sprovieri-1.jpg)
 
 We look at the tank with a sense of immensity constrained. A similar tension between the man made and the natural appears in other works in the show: my favourite was of a *Times* newspaper, discussing the latest Brexit doom and gloom, wrapped around a hefty slab of solidified concrete: and not quite holding it all in.
 
@@ -15,5 +18,3 @@ He did broaden his repertoire as his short career went on (Ghirri died in 1992) 
 Immensity constrained, from two different periods in Italian history!
 
 *Francesco Arena - Cubic Metre of Seawater as a Diagonal is at Sprovieri (London). October 02 - November 15 2019*
-
-#art/artangled

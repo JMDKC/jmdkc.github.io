@@ -7,7 +7,7 @@ I’d rocked up to Skarstedt to be confronted by an unfamiliar scene: a queue! I
 
 Elbowing my way through the crowds - who mostly seemed really into the paintings and sculptures on display - I could see the extreme, almost computer-generated flatness of KAWS’s acrylic colours: no drippy paint drops on the sides of *his* frameless canvases.
 
-![installation view](/Assets/kaws-skarstedt.jpg)
+![installation view](/Assets/kaws-skarstedt-1.jpg)
 *TAKE (2019)*
 
 And, as befitting of an artist collected by borderline billionaires from Pharell Williams to PewDiePie, the prevailing sense was one of of extreme luxe. The paintings are totally devoid of interest. But KAWS’ sculptures are fascinating. Both on show here feature one of the artist’s mascots, the X-eyed ‘Companions’. Up close, they have a weird inner sheen. Then I read the show notes and found out they were actually painted bronze!
