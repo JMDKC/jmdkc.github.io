@@ -3,9 +3,9 @@ layout: post
 title: Rembrandt-Velázquez - Dutch & Spanish Masters | Rijksmuseum
 ---
 
-Talk about star power! Not since Etre moderne,  [a “best of MoMA” show that took over the Fondation Louis Vuitton in late 2017](https://www.fondationlouisvuitton.fr/fr/expositions/exposition/etre-moderne-le-moma-a-paris.html)  while the iconic New York museum was being renovated, have I experienced such concentrated star power in a standalone exhibition.
+Talk about star power! Not since *Etre moderne*, [a “best of MoMA” show that took over the Fondation Louis Vuitton in late 2017](https://www.fondationlouisvuitton.fr/fr/expositions/exposition/etre-moderne-le-moma-a-paris.html) while the iconic New York museum was being renovated, have I experienced such concentrated star power in a standalone exhibition.
 
-The concept is simple: a pair of Spanish and Dutch 17 century masterworks, thematically linked, are placed side by side on each wall, in a kind of  [Godzilla vs Mothra of Baroque mastery](https://www.rijksmuseum.nl/en/rembrandt-velazquez) . Some of the pairings show inspired lateral thinking on the part of the curators. Early on, there’s a clean, white Sanraedam church interior, next to a trussed Zurbaran lamb. Later, a pairing of Velazquez and Rembrandt’s self portraits - both stares containing their painter’s characteristic psychological penetration.
+The concept is simple: a pair of Spanish and Dutch 17th century masterworks, thematically linked, are placed side by side on each wall, in a kind of  [Godzilla vs Mothra of Baroque mastery](https://www.rijksmuseum.nl/en/rembrandt-velazquez). Some of the pairings show inspired lateral thinking on the part of the curators. Early on, there’s a clean, white Sanraedam church interior, next to a trussed Zurbaran lamb. Later, a pairing of Velazquez and Rembrandt’s self portraits - both stares containing their painter’s characteristic psychological penetration.
 
 ![installation view](/Assets/rembrandt-rijksmuseum-1.jpg)
 
