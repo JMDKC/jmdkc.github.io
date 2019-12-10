@@ -18,4 +18,4 @@ Jaar the scold does not concede that these stories remain *interesting* to the g
 
 As so often, the political message behind this art show is depressingly basic and hectoring. I suppose we can at least thank Jaar for sparing us an unoriginal lecture, beloved of fellow rich artists, on why consumerism is a bad thing.
 
-*Alfredo Jaar: 25 Years Later is at*Goodman Gallery*(London). November 14 2019 - January 11 2020*
+*Alfredo Jaar: 25 Years Later is at Goodman Gallery (London). November 14 2019 - January 11 2020*
