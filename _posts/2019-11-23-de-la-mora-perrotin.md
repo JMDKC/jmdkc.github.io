@@ -2,6 +2,7 @@
 layout: post
 title: Gabriel de la Mora - Écho | Perrotin
 ---
+
 An arresting example of craft and obsession is provided by this Mexican-born artist, [on show at Perrotin](https://www.perrotin.com/exhibitions/gabriel_de_la_mora_-echo/7867). De la Mora loves wall-mounted works, created piecemeal with great meticulousness. Their overall effect is weirdly heartening and uplifting.
 
 From a distance, the small, monochrome works, generally layered and repeated across the wall, do not look like much. It’s only when you get closer, when you realise what they’re made from, that the involuntary intake of breath comes. So an orangey-pinky flat background becomes an orangey-pink mass striated with tiny cracks, and then becomes a gigantic, mind-bending jigsaw of uniformly-sized shards of eggshell.
