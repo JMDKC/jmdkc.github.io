@@ -9,7 +9,7 @@ Here’s an example of what I mean: Joris van Son’s *Still-life with a lobster
 
 ![installation view](/Assets/food-fitzwilliam-1.jpg)
 
-Though on closer inspection, the cherry leavesn on the left hand side of the canvas are blackened and withering. Consider the potential symbolic meanings and cultural interpretations for this. Is van Son commenting on the ephemerality of life? The inadvisability of sensual indulgence? Is he making a sly comment on the viewer’s impossible hungers, as the composition is itself impossible? (Both a lobster and a shrimp are collected together, though van Son’s audience would know that one should be eaten in summer, the other in autumn.)
+Though on closer inspection, the cherry leaves on the left hand side of the canvas are blackened and withering. Consider the potential symbolic meanings and cultural interpretations for this. Is van Son commenting on the ephemerality of life? The inadvisability of sensual indulgence? Is he making a sly comment on the viewer’s impossible hungers, as the composition is itself impossible? (Both a lobster and a shrimp are collected together, though van Son’s audience would know that one should be eaten in summer, the other in autumn.)
 
 There’s no sense of the human labour that created such a scene, beyond that of the artist. Though the citrus fruits which flank the lobster would have been costly imports from the Mediterranean. 
 
