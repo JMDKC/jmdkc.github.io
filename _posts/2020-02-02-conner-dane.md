@@ -9,7 +9,7 @@ This time, the focus is on his mid-60s video art: on show at Thomas Dane is *Bre
 
 ![installation view](/Assets/conner-dane-1.jpg)
 
-In that music video, Basil was a very young looking 38, shaking her pom poms in the guise of a high school cheerleader. But it’s a very different Basil who appears in Breakaway. Shot by Conner in moody black and white, via hundreds of flashy jumpcuts, as she sings the titular song, which seems to have been recorded especially for the video, she’s a long way from high school here. She has great screen presence: I’m not surprised she found fame in music videos in the end, with *Hey Mickey* coming just in time for the launch of MTV in 1981.
+In that music video, Basil was a very young looking 38, shaking her pom poms in the guise of a high school cheerleader. But it’s a very different star who appears in Breakaway. Shot by Conner in moody black and white, via hundreds of flashy jumpcuts, as she sings the titular song, which seems to have been recorded especially for the video, she’s a long way from high school. She has great screen presence: I’m not surprised she found fame in music videos in the end, with *Hey Mickey* coming just in time for the launch of MTV in 1981.
 
 Cleverly, Conner plays us *Breakaway* twice, as Basil, sometimes nude, sometimes not, bops along. First, we hear the song as normal; second, played backwards. With the soundtrack divorced from normality, we notice that Conner is shooting at different frame rates, occasionally whiting the screen out when cutting, lending his muse a spectral, uncanny quality.
 
