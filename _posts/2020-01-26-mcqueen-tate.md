@@ -3,7 +3,7 @@ layout: post
 title: Steve McQueen - Year 3 | Tate Britain
 ---
 
-Steve McQueen [was made a knight in the 2020 honours list](https://www.bbc.co.uk/news/entertainment-arts-50901526) , and this is just the kind of public-spirited artwork suitable for such a high national honour. (Though I can’t help thinking LS Lowry’s approach of [turning down such Royal-approved baubles](https://en.wikipedia.org/wiki/List_of_people_who_have_declined_a_British_honour), all the way up to refusing the Companion of Honour twice, is a much cooler artistic statement.)
+Steve McQueen [was made a knight in the 2020 honours list](https://www.bbc.co.uk/news/entertainment-arts-50901526), and this is just the kind of public-spirited artwork suitable for such a high national honour. (Though I can’t help thinking LS Lowry’s approach of [turning down such Royal-approved baubles](https://en.wikipedia.org/wiki/List_of_people_who_have_declined_a_British_honour), all the way up to refusing the Companion of Honour twice, is a much cooler artistic statement.)
 
 For [this exhibition](https://www.tate.org.uk/whats-on/tate-britain/exhibition/steve-mcqueen-year-3), specially-trained Tate teams have photographed a total of 76,000 of London’s Year 3 schoolchildren and teachers in the traditional class photo format. These pictures have taken over the entire massive Duveen Gallery at Tate Britain - with photos all the way up the walls. Each participating school is told by the gallery where exactly their photo is; if it’s too high, assistants have special large magnifiers on wheels to help viewers of all heights get a closer look.
 
