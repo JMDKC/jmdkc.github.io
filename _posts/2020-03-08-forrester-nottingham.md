@@ -7,7 +7,7 @@ When I first saw Denzil Forrester’s paintings, [at an exhibition at Stephen Fr
 
 There are obviously many differences between the two, extending well beyond their choice of medium. Rather than Vitali’s precisely delineated smart beach resorts and tragic-looking nightclubs, Forrester’s scenes are lyrical, colourful, hazy purples and pinks picking out huge stacks of speakers in long, narrow, rooms - the disco ball overhead, the firmly shut security doors on the far one. He cites other artistic connections, saying in interviews that he learned from Monet and Cezanne, those pastel-coloured masters, as well as the clear sunlight of Italy, where he travelled in the 1980s.
 
-![](2020-03-08-forrester-nottingham/Ji2RsO0pwFmV-E9wma2K6w689o0y_dExaWSvLC4a-iuKvhnXsmFOHXAcReNR75hsNy3DLeqrE9HYh7-mn3KmYWUwRauwoQHsVSUvhLWRfrk6j5Nw54_Sg6tkkX6k-WAtLBsryxWe.jpg)
+![night strobe](/Assets/forrester-nottingham.jpg)
 *Night Strobe*
 
 Back in London, he went to a club called All Nations, in Hackney. I can’t even imagine how grotty that part of the city was in the depressed 80s, but under Forrester’s sympathetic brush, it becomes a magical playground, rainbow-coloured soundwaves bouncing off the walls and ceiling and over the heads of the beaming partygoers.
