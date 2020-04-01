@@ -3,9 +3,9 @@ layout: post
 title: Léon Spillaert | Royal Academy
 ---
 
-What a shame  [this show](https://www.royalacademy.org.uk/exhibition/leon-spilliaert), like all the others in London, is now closed. If there ever was an artist who exemplified social distancing, it’s Léon Spillaert. And, having not spoken in person to anybody for coming up to two weeks now, I can’t get his disquietingly lonely paintings out of my mind. I already regret just taking a quick spin around the three rooms in the upper galleries of the Royal Academy, blithely assuming that I’d be back soon enough for a proper look.
+What a shame [this show](https://www.royalacademy.org.uk/exhibition/leon-spilliaert), like all the others in London, is now closed. If there ever was an artist who exemplified social distancing, it’s Léon Spillaert. And, having not spoken in person to anybody for coming up to two weeks now, I can’t tell anyone about how much I loved his paintings. I already regret just taking a quick spin around the three rooms in the upper galleries of the Royal Academy when I visited the exhibition, blithely assuming that I’d be back soon enough for a proper look.
 
-Spillaert was a loner from the back of beyond, also known as the Belgian seaside resort of Ostend. (It’s almost laughable that James Ensor, whose joyous colours could hardly be more different from Spillaert’s monochrome bleakness, is the town’s other famous artistic son.) An insomniac, Spillaert’ painted an extraordinary series of mad-eyed self portraits in the stillness of his lamplit room, and scenes from his lonely night walks - a unique environment of eternal early winter, whipping sea air, streaky lamplights and dark stormy waters.
+Spillaert was a loner from the back of beyond, also known as the Belgian seaside resort of Ostend. (It’s almost laughable that James Ensor, whose joyous colours could hardly be more different from Spillaert’s monochrome bleakness, is the town’s other famous artistic son.) An insomniac, Spillaert’ painted an extraordinary series of mad-eyed self portraits in the stillness of his lamplit room, and scenes from his lonely walks - a unique nocturnal environment of eternal early winter, whipping sea air and dark stormy waters.
 
 ![hofstraat](/Assets/spillaert-royal-academy-1.jpg)
 *Hofstraat, Ostend (1908)*
