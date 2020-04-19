@@ -9,7 +9,7 @@ The title is admirably descriptive: Jones paints, in oils on paper, a worn out w
 
 ![a wall in naples](/Assets/jones-national-1.jpg)
 
-It must have been summer, judging by the intensity of that sky; judging by the angle of the shadows, it's close to midday. Jones probably painted it from a window or the roof of his temporary home, closely observing the home of his neighbour across the street: their colourful linens, hung out to dry, and the watermark, arcing out from the balcony down the wall, of the contents of their chamber pots. It must have been pretty smelly out there in the heat.
+It must have been close to midday on a summer day, judging by the angle of the shadows and the intensity of that sky. Jones probably painted it from a window or from the roof of his temporary home, closely observing the home of his neighbour across the street: their colourful linens, hung out to dry, and the watermark, arcing out from the balcony down the wall, of the contents of their chamber pots. It must have been pretty smelly out there in the heat.
 
 Jones was well-known in his lifetime for his more conventional portraits and landscapes, which bear the firm mark of his time. Those works don’t stick in my mind: I can’t tell my Gainsboroughs from my Romneys, sue me. But he's got a justfiably big reputation these days for these small works on paper, painted for his private enjoyment and never exhibited.
 
