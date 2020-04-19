@@ -3,7 +3,7 @@ layout: post
 title: Interlude - A Wall in Naples at the National Gallery
 ---
 
-This [fascinating and tiny painting](https://www.nationalgallery.org.uk/paintings/thomas-jones-a-wall-in-naples), 16cm across and 10cm high, was one of my usual stops when I dropped in to the National Gallery. I must have visited the gallery hundreds of times over the years, and therefore must have seen this painting dozens of times, back when I had the option of doing so.
+This [fascinating and tiny painting](https://www.nationalgallery.org.uk/paintings/thomas-jones-a-wall-in-naples), 16cm across and 10cm high, was usually one of my stops when I dropped in to the National Gallery. I must have visited the gallery hundreds of times over the years, and therefore must have seen this painting dozens of times, back when I had the option of doing so.
 
 The title is admirably descriptive: Jones paints, in oils on paper, a worn out wall, lit by strong sunshine. It’s patched by newer bricks, pockmarked by scaffolding holes and swelled by damp. Little studs of vegetation poke out, with a shadowy climbing plant reaching into the bottom of the frame. There’s a beautiful, truncated strip of deep blue sky up above, which must have been such an unfamiliar but exciting sight for Jones, who was born and died in Wales, spending just a few years in his twenties travelling in Italy.
 
