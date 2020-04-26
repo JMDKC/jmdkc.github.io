@@ -9,9 +9,9 @@ In this painting, the awesome scope of the bridge’s approach dominates - a gre
 
 ![manhattan bridge loop](/Assets/hopper-andover-1.jpg)
 
-As for the titular bridge itself: opened a couple of decades before Hopper painted it, it’s a wonder of industrial efficiency and progress, easing a bottleneck of people and commerce by providing a new link between Manhattan and Brooklyn. But the man in the painting isn’t too thrilled by it, face downcast as he skulks in the shadow of the elevated trolley tracks. He has a place to go - away from our prying eyes.
+The titular bridge itself was opened a couple of decades before Hopper painted it. Manhattan Bridge is a wonder of industrial efficiency and progress, easing a bottleneck of people and commerce by providing a new link to the outer boroughs. But the man in the painting isn’t too thrilled by it, face downcast as he skulks in the shadow of the elevated trolley tracks. He has a place to go - away from our prying eyes.
 
-On the face of it, what better artist to turn to in these lockdown times? There’s an eerie stillness to Hopper’s scene that does resemble the near-silent London streets I pedal through each day, out on my bike for my government-mandated exercise.
+On the face of it, what better artist than Hopper to turn to in these lockdown times? There’s an eerie stillness to this scene, and so many others from the artist, that does resemble the near-silent London streets I pedal through each day, out on my bike for my government-mandated exercise.
 
 But overall, life doesn’t feel Hopper-ish at the moment. Maybe it’s because our loneliness is imposed on us, for want of an alternative. With Hopper, you always have the sense that his lonely subjects have the luxury of choosing their solitary fates. There are crowds all around that they have decided not to join
 
