@@ -13,7 +13,7 @@ The titular bridge itself was opened a couple of decades before Hopper painted i
 
 On the face of it, what better artist than Hopper to turn to in these lockdown times? There’s an eerie stillness to this scene, and so many others from the artist, that does resemble the near-silent London streets I pedal through each day, out on my bike for my government-mandated exercise.
 
-But overall, life doesn’t feel Hopper-ish at the moment. Maybe it’s because our loneliness is imposed on us, for want of an alternative. With Hopper, you always have the sense that his lonely subjects have the luxury of choosing their solitary fates. There are crowds all around that they have decided not to join
+But overall, life doesn’t feel Hopper-ish at the moment. Maybe it’s because our loneliness is imposed on us, for want of an alternative. With Hopper, you always have the sense that his lonely subjects have the luxury of choosing their solitary fates. There are crowds all around that they have decided not to join.
 
 Consider Hopper’s own description of the painting: “The very long horizontal shape of this picture . . . is an effort to give the sensation of great lateral extent. Carrying the main horizontal lines of the design with little interruption to the edges of the picture is to enforce this idea and to make one conscious of the spaces and elements beyond the limits of the scene itself.”
 
