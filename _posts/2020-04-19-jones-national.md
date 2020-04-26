@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interlude - A Wall in Naples at the National Gallery
+title: Interlude - Thomas Jones at the National Gallery
 ---
 
 This [fascinating and tiny painting](https://www.nationalgallery.org.uk/paintings/thomas-jones-a-wall-in-naples), 16cm across and 10cm high, was usually one of my stops when I dropped in to the National Gallery. I must have visited the gallery hundreds of times over the years, and therefore must have seen this painting dozens of times, back when I had the option of doing so.

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interlude - Cabane éclatée No 6 at the Centre Pompidou
+title: Interlude - Daniel Buren at the Centre Pompidou
 ---
 
 The art industry must be one of the hardest hit in the current pandemic. The buying and selling of works between dealers and buyers depends on personal contact, though I’m sure a lot of sales for investment can be conducted virtually. More gravely, the showing of museum collections for paying visitors is impossible now. Less importantly, travel lockdowns mean that the peripatetic lives of star artists aren’t really doable either.
