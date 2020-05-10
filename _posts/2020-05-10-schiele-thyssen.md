@@ -8,7 +8,7 @@ Maybe it’s bad taste, maybe it’s cliché to use this artist for a pandemic-i
 How many new town scenes would he have painted, had the flu not cut him down? One of the best of those left to us [is in the Thyssen](https://www.museothyssen.org/en/collection/artists/schiele-egon/houses-river-old-town). In *Houses on the River*, painted in 1914, five years before his death, Schiele looks across calm, glassy waters at a dense grid of streets, roofs and houses. In common with his painted bodies, which so often are cut off at forearm and knee, the town stretches past the edges of the canvas, leaving us a truncated snapshot.
 
 
-![houses on the river](/Assets/schiele-thyssen.jpg)
+![houses on the river](/Assets/schiele-thyssen-1.jpg)
 
 Also in common with his figurative work, there are splashes of unexpected colour. Despite the flat overcast skies, some of the walls of the facades glow with an orangey yellow. Some top-floor windows, and a couple of chimneys, are danger-red. It’s a further remove from reality in a scene that’s already, deliberately unreal. There must be a little Cubist influence in the geometry of Schiele’s streets.
 
