@@ -5,7 +5,7 @@ title: Interlude - Pieter Sanraedam at the Rijksmuseum
 
 Pieter Sanraedam was famous in his lifetime - as he is now - for his paintings of church interiors, which was a whole genre by itself in the Dutch Golden Age. His work stands out for its serenity and calm, and his great skill in dealing with endless shades of white.
 
-White for spiritual purity. His bare, unadorned spaces are the results of violent social upheaval: Sanraedam painted Romanesque and Gothic churches, built for the all-powerful Catholic church. The artist lived and worked during the Dutch Revolt, where his people rebelled against the Hapsburg king down in Spain, and embraced extreme Calvinism. Creating defaced church interiors like *St Odulphuskerk in Assendelft*: Sanraedam’s painting of which, from 1649, [now hangs in the Rijksmuseum](https://www.rijksmuseum.nl/en/collection/SK-C-217).
+White stands for spiritual purity. His bare, unadorned spaces are the results of violent social upheaval: Sanraedam painted Romanesque and Gothic churches, built centuries before for the then-all-powerful Catholic church. The artist lived and worked during the Dutch Revolt, an uprising against the Hapsburg king down in Spain, powered by Calvinism. In such an atmosphere, churches were stripped of their old adornments. We can see the results in Sanraedam's *St Odulphuskerk in Assendelft*, which [now hangs in the Rijksmuseum](https://www.rijksmuseum.nl/en/collection/SK-C-217).
 
 ![odulphuskerk](/Assets/sanraedam-rijksmuseum-1.jpg)
 
