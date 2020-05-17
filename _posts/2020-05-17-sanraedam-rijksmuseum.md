@@ -15,6 +15,6 @@ The artist’s craft was meticulous. First, he visited the building and made mea
 
 In fact we know. The initial sketches were made in 1633. The preparatory drawing of the final view - characteristically, along the nave - came a decade later. And then the date of completion is right there on the painting: October 2nd 1649.
 
-And, in the foreground, a last biographical touch, in a gravestone on the floor. Read it upside down and we can make out a surname: SANRAEDAM. It’s the artist’s father. A painter and printmaker, Jan Sanraedam died of typhus, 42 years before.
+And, in the foreground, a last biographical touch, in a gravestone on the floor. Read it upside down and we can make out a surname: SANRAEDAM. It’s the artist’s father. Once a painter and printmaker, Jan Sanraedam died of typhus and was buried in this church, 42 years before.
 
 *St Odulphuskerk in Assendelft is in the permanent collection at the Rijksmuseum*
