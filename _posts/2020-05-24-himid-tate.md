@@ -7,7 +7,7 @@ title: Interlude - Lubaina Himid at Tate Britain
 
 Let’s look at  [Ankledeep](https://www.tate.org.uk/art/artworks/himid-ankledeep-t12885) , a Himid painting from 1991 that’s part of the Tate collection, and was on show in an artist’s room at Tate Britain right up until the virus hit, and the doors closed. Himid’s “us”, and main subject, is women, black women. This particular painting is part of a series, in which Hamid’s ordinary everyday women appear in pairs, against fantastic landscapes.
 
-[/Assets/himid-tate-1.jpg]
+![ankledeep](/Assets/himid-tate-1.jpg)
 
 These two women are elegantly, collectively swathed in a black banner. They’re naked, but respectfully covered by the fabric. Another yellow swathe frames their heads. A more active pattern of blue and white, possibly flowing water, cools their feet. Ankle deep.
 
