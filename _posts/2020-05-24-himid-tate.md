@@ -5,7 +5,7 @@ title: Interlude - Lubaina Himid at Tate Britain
 
 “Nobody paints our love stories, our ordinary everyday,” the British artist Lubaina Himid [told an interviewer once](https://www.vogue.co.uk/article/lubaina-himid-interview). “How our ordinary everyday is touched by enormous trauma and tragedy but we as a whole set of women globally and historically have the capacity to keep going.”
 
-Let’s look at  [Ankledeep](https://www.tate.org.uk/art/artworks/himid-ankledeep-t12885) , a Himid painting from 1991 that’s part of the Tate collection, and was on show in an artist’s room at Tate Britain right up until the virus hit, and the doors closed. Himid’s “us”, and main subject, is women, black women. This particular painting is part of a series, in which Hamid’s ordinary everyday women appear in pairs, against fantastic landscapes.
+Let’s look at [Ankledeep](https://www.tate.org.uk/art/artworks/himid-ankledeep-t12885), a Himid painting from 1991 that’s part of the Tate collection, and was on show in an artist’s room at Tate Britain right up until the virus hit, and the doors closed. Himid’s “us”, and main subject, is women, black women. This particular painting is part of a series, in which Hamid’s ordinary everyday women appear in pairs, against fantastic landscapes.
 
 ![ankledeep](/Assets/himid-tate-1.jpg)
 
