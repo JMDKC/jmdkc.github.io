@@ -14,8 +14,8 @@ I hope that he gets a new revival as soon as possible after lockdown ends - and 
 
 One of the paintings on show there was *Dockside Cafe, Marseilles*, which, like most of Burra’s work, remains in a private collection. As well as closeted and introverted, Burra was also incapacitated by arthritis from an early age. In between jaunts to France and New York (so good for people watching!) he recuperated at his parents’ house, in Rye. He lived there into adulthood.
 
-How moving to think that this louche bar scene, with its peroxided barmaid and hunky sailors, the dockside cranes against the blue skies through the open doors, so full of life and (slightly sleazy) fun, was painted by an arthritic, stuck with his parents in a particularly picturesque part of Sussex. That’s what lends Burra his voyeuristic power.
+How moving to think that this louche bar scene, with its peroxided barmaid and hunky sailors, the dockside cranes against the blue skies through the open doors, so full of life and (slightly sleazy) fun, was painted by an arthritic, stuck with his parents in a particularly picturesque part of Sussex. He painted on watercolour on paper. The physical act of doing so undoubtedly caused him pain.
 
-How soon after the bars reopen will I be able to visit him again?
+That’s all that lends Burra his voyeuristic power. Plus something ineffable, totally original. How soon after the bars reopen will I be able to visit him again?
 
 *Dockside Cafe, Marseilles is in a private collection*
