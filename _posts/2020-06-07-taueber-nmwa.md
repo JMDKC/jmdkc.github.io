@@ -13,4 +13,4 @@ The sharply-delineated shapes move across a dark background, like celestial bodi
 
 Taueber-Arp is also commonly-termed a Constructivist artist, due to her preference for austere, geometrical abstraction. But there’s something of the Cabaret Voltaire, the legendary Zurich venue for which she designed costumes and sets, in those early, angry Dada years, in the movement of these circles. They might be calm, but they’re not still.
 
-*Composition of Circles and Semicircles is in the permanent collection at the National Museum of Women in the Arts*
+*Composition of Circles and Semicircles is in the permanent collection at the National Museum of Women in the Arts, Washington DC*
