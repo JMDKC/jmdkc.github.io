@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hell Gette - ## | Annka Kultys Gallery
+title: Hell Gette - (##) | Annka Kultys Gallery
 ---
 
 The first emojis were created in 1999 by Japanese designer Shigetaka Kurita for a local telecoms company. Over the two decades since, they’ve mounted a stealth takeover of the world’s written conversation, and along the way,  [found their way into the permanent collection at MoMA](https://www.wired.com/story/guide-emoji/#:~:text=The%20first%20emoji%20were%20created,Japan's%20main%20mobile%20carrier%2C%20DOCOMO.) . Some more emoji art can currently be found up a staircase off the Hackney Road, with a  [small exhibition of paintings](http://www.annkakultys.com/exhibitions/hell-gette-hashtag-hashtag/)  from Kazakhstan-born German artist, Hell Gette.
