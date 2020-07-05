@@ -15,7 +15,6 @@ All of the paintings have a shared aesthetic, inspired, so the artist says, by 9
 
 Bringing us still further up to date is the obvious fact that the whole show’s seen through an Instagram filter. Fitting, given the sheer amount of emojis posted on that platform these days. Along with their phone-screen-friendly format, the titles of the works are all some of Instagram’s most-used hashtags: others are named *#tbt* and *#tfw*.
 
-
 ![worldwanderer](/Assets/gette-kultys-2.jpg)
 
 Even if the subject matter’s deliberately ephemeral and throwaway, Gette’s careful handling of her medium, and solidly coherent aesthetic, means these paintings linger in the mind.
