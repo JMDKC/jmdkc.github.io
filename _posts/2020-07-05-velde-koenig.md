@@ -13,9 +13,9 @@ He’s clearly making the point that his scenes are meant to be of human detritu
 
 There’s a few common themes to the subjects in the ashtrays:
 
-* Blood and guts: including a dinosaur attack, as cute velociraptors chew off the limbs of fleeing humans, dead bodies strewing the floor. Or a hospital scene, with mad white coated saw-wielding doctors cutting up cadavers on operating tables
-* Solitary men: my favourite of all, a Bjorn Borg-style figure on a clay court, defeated, unreturned tennis balls behind him. A lone cowboy on a horse.
-* Artists: in one scene, a pair of scruffy guys paint a leering nude woman, legs akimbo. In another, Monet, looking rather Gandalf-like with his beard and hat, stares at us, or at our knees from his low perspective, from a model of the Japanese bridge at Giverny.
+* **Blood and guts**: including a dinosaur attack, as cute velociraptors chew off the limbs of fleeing humans, dead bodies strewing the floor. Or a hospital scene, with mad white coated saw-wielding doctors cutting up cadavers on operating tables
+* **Solitary men**: my favourite of all, a Bjorn Borg-style figure on a clay court, defeated, unreturned tennis balls behind him. A lone cowboy on a horse.
+* **Artists**: in one scene, a pair of scruffy guys paint a leering nude woman, legs akimbo. In another, Monet, looking rather Gandalf-like with his beard and hat, stares at us, or at our knees from his low perspective, from a model of the Japanese bridge at Giverny.
 
 “Van de Velde’s work suggests that the fictitious quality of art relates to its distance from the particulars of everyday life. But if art is something that we can only experience at select – one might even say privileged – moments, viewers still have to account for the living, breathing personalities who shape a work,” the show notes state. (What about the dino attack then?)
 

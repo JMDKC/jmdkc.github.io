@@ -13,7 +13,7 @@ Accordingly, he painted it black. He planted in the shingles outside his door, a
 
 The Garden Museum has built a full scale replica of a section of Prospect Cottage. When you tread the shingles in this enclosed space, approaching the door, your footsteps echo uncomfortably loudly. Inside, despite cheery sky blue walls, the atmosphere is deeply oppressive. Jarman’s bed is a single mattress in a cell-shaped space, heavy telephone and thin blanket on top. Literally a prison bed.
 
-The atmosphere isn’t helped by many terrible paintings. As well as the already-mentioned black works (which I can never look at without thinking of that Fast Show sketch), there’s some dense impasto works of tightly-banded horizontal colour, kind of lobotomised Auerbach meets Anselm Kiefer.
+The atmosphere isn’t helped by many terrible paintings. As well as the already-mentioned black works (which I can never look at without thinking of [that Fast Show sketch](https://www.youtube.com/watch?v=IIW9sL-Yf6Q)), there’s some dense impasto works of tightly-banded horizontal colour, kind of lobotomised Auerbach meets Anselm Kiefer.
 
 But all such thoughts are blown away when you sit down to watch the pair of films on display in projectors within the cottage: *Bankside* shows Jarman and friends at play in their studios close to the present-day Tate Modern, with spectacularly spectral shots of the river. The other, *The Garden*, shows scenes from and around the cottage itself. And it’s brilliantly evocative of the beautiful strangeness of that place, in an even more powerful way than the full-scale model can be.
 
