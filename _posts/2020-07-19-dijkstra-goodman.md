@@ -1,6 +1,6 @@
 ---
-Layout: post
-Title: Rineka Dijkstra | Marian Goodman
+layout: post
+title: Rineka Dijkstra | Marian Goodman
 ---
 
 This portrait photographer shoots well-off, good-looking young people. Her subjects tend to pose for the camera, natural and relaxed expressions on their unlined faces. Most of the photographs at [Rineka Dijkstra’s current London show](https://www.mariangoodman.com/exhibitions/rineke-dijkstra-london-2020/) keep to this formula: there’s a series of sibling portraits, brothers and sisters pictured at home. These homes are generally well-appointed, even fancy.
