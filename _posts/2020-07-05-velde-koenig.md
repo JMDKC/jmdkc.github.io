@@ -3,7 +3,7 @@ layout: post
 title: Rinus Van de Velde - Ashtrays | König
 ---
 
-Smoking’s been banned in many public places, bars included, in the UK for well over a decade. Which means that smoking-related objects, like the humble ashtray, are passing into obscurity. The kids are vaping these days.
+Here in the UK, smoking’s been banned in many public places for well over a decade. Which means that smoking-related objects, like the humble ashtray, are passing into obscurity. The kids are vaping these days.
 
 As a result, I wouldn’t have necessarily recognised Rinus Van de Velde’s cute yet disturbing sculptures as being ashtrays, had it not been for [the title of this show](https://koeniglondon.co.uk/exhibitions/29940/rinus-van-de-velde-ashtrays/installation-views/). But there they are: round, shallow dishes, with notches around the rim. Ashtray format, in other words. Though there are a few differences. For one thing, they’re way bigger than an ashtray actually used for smoking. For another, inside their notched brims, Van de Velde’s ashtrays teem with miniature figures and animals!
 
