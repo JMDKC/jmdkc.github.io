@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mike Silva - London Portraits, Interiors and Still Lives
+title: Mike Silva - London Portraits, Interiors and Still Lives | The Approach
 ---
 
 Something about Mike Silva’s paintings make me feel - “that’s London”. I promise I would have said the same even if [this show](https://theapproach.co.uk/exhibitions/mike-silva-2/press-release/) had been called anything else. I’ll try to explain why.
