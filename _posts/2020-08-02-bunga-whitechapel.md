@@ -5,7 +5,7 @@ title: Carlos Bunga - Something Necessary and Useful | Whitechapel Gallery
 
 For a small sect that has never had a global membership higher than a few thousand souls, the Shakers have had an outsize cultural impact. With their dedication to beautifully modest and minimal design, their aesthetic influence has echoed down the centuries, from Modernist cereal-box architecture, to wood-n-whitewash worshipping magazines like *Kinfolk*.
 
-Shakerism influences the work of Carlos Bunga, a Portuguese-born, US-based artist. He’s taken inspiration not just in Shaker aesthetics in this one-room show, [currently on at Whitechapel Gallery](https://www.whitechapelgallery.org/exhibitions/carlos-bunga/). (The show notes also note the Shakers' dedication to racial and gender equality, which was very radical in the 18th century when the sect was founded, and pretty radical today too.)
+Shakerism influences the work of Carlos Bunga, a Portuguese-born, US-based artist. He’s taken inspiration not just in Shaker aesthetics in this one-room show, [currently on at Whitechapel Gallery](https://www.whitechapelgallery.org/exhibitions/carlos-bunga/). (The show notes also cite the Shakers' dedication to racial and gender equality, which was very radical in the 18th century when the sect was founded, and pretty radical today too.)
 
 ![installation view](/Assets/bunga-whitechapel-1.jpg)
 
