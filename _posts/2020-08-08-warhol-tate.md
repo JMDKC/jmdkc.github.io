@@ -16,7 +16,7 @@ Of course, the sheer volume of the production is kind of the point: the artist b
 
 Unsurprisingly Tate has brought out the big guns. The show’s third room, featuring perhaps Warhol’s most famous series of works - his 60s screen prints - is overwhelming. There’s some cans of soup over there: Warhol grew up so poor in Pittsburgh that he used to make his own with ketchup, salt and hot water. And, over there, his gun-toting Elvis.
 
-On that wall there, his impressively sick photo reproductions of grisly car accidents, a girl’s suicide, and a race riot. (Presented as part of a series called *Death and Disaster* - surely Warhol’s ripe for being cancelled.) I would have love to have lingered, picking out details such as the subtle variation on my favourite work in the room, his (early, hand painted) coke bottles (pictured above, from the Whitney). As Warhol said, a monarch and a pauper both get exactly the same product: “No amount of money can get you a better Coke.” 
+On that wall there, his impressively sick photo reproductions of grisly car accidents, a girl’s suicide, and a race riot. (Presented as part of a series called *Death and Disaster* - surely Warhol’s ripe for being cancelled.) I would have loved to have lingered, picking out details such as the subtle variation on my favourite work in the room, his (early, hand painted) coke bottles (pictured above, from the Whitney). As Warhol said, a monarch and a pauper both get exactly the same product: “No amount of money can get you a better Coke.” 
 
 ![sixty last suppers](/Assets/warhol-tate-2.jpg)
 *Sixty Last Suppers (1986)*
