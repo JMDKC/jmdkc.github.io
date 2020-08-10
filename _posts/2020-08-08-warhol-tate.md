@@ -5,12 +5,12 @@ title: Andy Warhol | Tate Modern
 
 I’ve been waiting to see this show for ages, given Tate's pandemic-induced shutdown just after its opening. This vast, career-spanning retrospective has been [extended now until November](https://www.tate.org.uk/whats-on/tate-modern/exhibition/andy-warhol). Following all that anticipation, it was a sad experience to visit Tate Modern post-lockdown. I could deal with the need to pre-book, the long queues and the mask wearing - all good by me. But the long queues and implied one-way system made me feel like I needed to keep moving forwards, and not linger on this or that.  Given Tate’s outrageously high prices (£22 for non-members), the viewer feels under quite a lot of pressure to take it all in - quickly - then leave in order to let others in behind.
 
-This isn’t one that’s going to have repeated viewings then, though I guess we can console ourselves that a high pace of consumption suits the subject matter. As an artist and as a man, Andy Warhol was always moving on to the next party or starlet or medium. But on the other hand, this is a massive, deep and thought-through, chronological retrospective of an absolutely vast oeuvre, the type of show that we should linger on and return to - if conditions were better.
-
-What a life! [Blake Gopnik’s recent biography](https://www.theartnewspaper.com/feature/book-of-the-month-warhol-a-life-as-art-by-blake-gopnik) of the man himself runs to 976 pages, reflecting the artist’s awesome, machine-like output. (A comparison the man himself would have welcomed.) Warhol’s home-town museum in Pittsburgh alone [contains 12,000 works](https://www.warhol.org/art-and-archives/), surely the overall total is in the high five figures.
+This isn’t one that’s going to have repeated viewings then, though I guess we can console ourselves that a high pace of consumption suits the subject matter. As an artist and as a man, Andy Warhol was always moving on to the next party or starlet or medium. But on the other hand, this is a massive, deep and thought-through, chronological retrospective of a super-important oeuvre. It's the type of show that we should linger on and return to - if conditions were better.
 
 ![green coke bottles](/Assets/warhol-tate-1.jpg)
 *Green Coke Bottles (1962)*
+
+What a life! [Blake Gopnik’s recent biography](https://www.theartnewspaper.com/feature/book-of-the-month-warhol-a-life-as-art-by-blake-gopnik) of the man himself runs to 976 pages, reflecting the artist’s awesome, machine-like output. (A comparison the man himself would have welcomed.) Warhol’s home-town museum in Pittsburgh alone [contains 12,000 works](https://www.warhol.org/art-and-archives/), surely the overall total is in the high five figures.
 
 Of course, the sheer volume of the production is kind of the point: the artist believed in mechanistic over-production, saturation even. Tate’s show notes point out that Warhol’s preferred term for his kind of art wasn’t Pop at all, it was “commonism”. His relentless, avid, crafty repackaging of the quotidian led to some of the 20th century’s most purely iconic artworks.
 
