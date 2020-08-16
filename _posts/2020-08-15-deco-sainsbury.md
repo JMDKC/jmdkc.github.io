@@ -3,9 +3,9 @@ layout: post
 title: Art Deco by the Sea | Sainsbury Centre
 ---
 
-What a moving exhibition this proved to be. Of course, when the Sainsbury Centre was [planning a show on those far-off inter-war years](https://sainsburycentre.ac.uk/whats-on/art-deco-by-the-sea/), when paid time off for all was passed into law but before the rise of low-cost package holidays on the continent - they can’t have known that so many people would be “staycationing” this year. That includes me: I could visit because I was housesitting in Norwich, glad of the change of scene, with a holiday in France cancelled due to the new quarantine restrictions.
+What a moving exhibition this proved to be. Of course, when the Sainsbury Centre was [planning a show about Britons taking their holidays at the seaside in the far-off inter-war years](https://sainsburycentre.ac.uk/whats-on/art-deco-by-the-sea/), they can’t have known that so many people would be “staycationing” this year. That includes me: I could visit because I was housesitting in Norwich, glad of the change of scene, with a holiday in France cancelled due to the new quarantine restrictions.
 
-This show is about Brits enjoying new kinds of leisure in the 1920s and 30s: a time of Brighton Rock and Butlin’s camps, of whooshy seafront serviced flats and hotels, gleaming white in the sunshine. Of actual flattering swimwear. Of new fairground thrills - dodgems and big dippers. Of expensive advertising campaigns from newly-consolidated train companies, promising holiday pleasures in gleaming Gill Sans.
+This show is about Brits enjoying new kinds of leisure in the period after paid time off for all was passed into law but before the war, and the rise of low-cost package holidays on the continent. It was a time of Brighton Rock and Butlin’s holiday camps, of whooshy seafront serviced flats and hotels, gleaming white in the sunshine. Of new fairground thrills - dodgems and big dippers. Of expensive advertising campaigns from newly-consolidated train companies, promising holiday pleasures in gleaming Gill Sans.
 
 ![east coast joys](/Assets/deco-sainsbury-1.jpg)
 *East Coast Joys - ad campaign for LNER, designed by Tom Purvis*
@@ -14,7 +14,7 @@ The show makes the argument that the abiding aesthetic style for this confluence
 
 Though some of the designs of these times seems pretty out-there, from the sexy bakelite curves of Ecko radio sets (made in Southend-on-Sea), to Marion Dorn’s abstract-patterned rugs, laid resplendent in a new hotel in Morecombe, to the tight and sexy bathing suit styles that so many women must have saved to buy to wear during their planned trip to Butlin’s, the cost of staying there was equivalent to a week’s wage for the average Briton.
 
-I found a page of the Butlin’s brochure describing their on-site pool one of the most moving pieces of the show, speaking as it did of hard-up city-dwellers finally finding a holiday destination in which to take their ease. “It’s one of those pools you dreamed about where you can dive without a feeling you might take a couple down with you on the way.” An accompanying photo of a factory trip to the camp, featuring rows and rows of young people beaming their faces off, underlines the point.
+I found a page of the Butlin’s brochure describing their on-site pool one of the most moving pieces of the show, speaking as it did of hard-up 1930s city-dwellers finally finding a holiday destination in which to take their ease. “It’s one of those pools you dreamed about where you can dive without a feeling you might take a couple down with you on the way.” An accompanying photo of a factory trip to the camp, featuring rows and rows of young people beaming their faces off, underlines the point. No wonder an iconic amusement park opened in Margate was simply called Dreamland.
 
 ![four streamliners](/Assets/deco-sainsbury-2.jpg)
 
