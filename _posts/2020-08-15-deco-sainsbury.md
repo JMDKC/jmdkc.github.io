@@ -5,7 +5,7 @@ title: Art Deco by the Sea | Sainsbury Centre
 
 What a moving exhibition this proved to be. Of course, when the Sainsbury Centre was [planning a show about Britons taking their holidays at the seaside in the far-off inter-war years](https://sainsburycentre.ac.uk/whats-on/art-deco-by-the-sea/), they can’t have known that so many people would be “staycationing” this year. That includes me: I could visit because I was housesitting in Norwich, glad of the change of scene, with a holiday in France cancelled due to the new quarantine restrictions.
 
-This show is about Brits enjoying new kinds of leisure in the period after paid time off for all was passed into law but before the war, and the rise of low-cost package holidays on the continent. It was a time of Brighton Rock and Butlin’s holiday camps, of whooshy seafront serviced flats and hotels, gleaming white in the sunshine. Of new fairground thrills - dodgems and big dippers. Of expensive advertising campaigns from newly-consolidated train companies, promising holiday pleasures in gleaming Gill Sans.
+This show is about Brits enjoying new kinds of leisure in the period when paid time off for all was passed into law but before the war, and, after that, the rise of low-cost package holidays on the continent. It was a time of Brighton Rock and Butlin’s holiday camps, of whooshy seafront serviced flats and hotels, gleaming white in the sunshine. Of new fairground thrills - dodgems and big dippers. Of expensive advertising campaigns from newly-consolidated train companies, promising holiday pleasures in gleaming Gill Sans.
 
 ![east coast joys](/Assets/deco-sainsbury-1.jpg)
 *East Coast Joys - ad campaign for LNER, designed by Tom Purvis*
