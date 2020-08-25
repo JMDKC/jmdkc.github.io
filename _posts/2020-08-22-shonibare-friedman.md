@@ -13,6 +13,6 @@ As so often with Shonibare’s work, the head is a globe, symbol of travel and e
 
 The larger-than-life-size sculpture and its pose are immediately recognisable to a British viewer, even if they can’t quite place the source: it’s the statue that adorns the Old Bailey, London’s criminal court, the background image of so many news stories on famous trials down the years. A symbol of the structural injustice Black Britons continue to face, reconfigured.
 
-Elsewhere on view in the window-facing room is [a work I saw in Nottingham earlier this year](http://artangled.com/2020/03/08/forrester-nottingham/), a dance club scene from Denzil Forrester, who took inspiration from reggae clubs in Hackney back in the 80s. To offset the injustice, it’s a scene of Black joy.
+Elsewhere on view in the window-facing room is [a work I saw in Nottingham earlier this year](http://artangled.com/2020/03/08/forrester-nottingham/), a blue-hued club scene from Denzil Forrester, who took inspiration from the reggae clubs he visited in Hackney back in the 80s. To deepen the sense of injustice, we are reminded of Black joy.
 
 *Yinka Shonibare: Justice for All is at Stephen Friedman Gallery (London). 15 June - 27 August 2020*
