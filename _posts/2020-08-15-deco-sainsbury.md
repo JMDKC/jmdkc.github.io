@@ -14,7 +14,7 @@ The show makes the argument that the abiding aesthetic style for this confluence
 
 Though some of the designs of these times seems pretty out-there, from the sexy bakelite curves of Ecko radio sets (made in Southend-on-Sea), to Marion Dorn’s abstract-patterned rugs, laid resplendent in a new hotel in Morecombe, to the tight and sexy bathing suit styles that so many women must have saved to buy to wear during their planned trip to Butlin’s, the cost of staying there was equivalent to a week’s wage for the average Briton.
 
-I found a page of the Butlin’s brochure describing their on-site pool one of the most moving pieces of the show, speaking as it did of hard-up 1930s city-dwellers finally finding a holiday destination in which to take their ease. “It’s one of those pools you dreamed about where you can dive without a feeling you might take a couple down with you on the way.” An accompanying photo of a factory trip to the camp, featuring rows and rows of young people beaming their faces off, underlines the point. No wonder an iconic amusement park opened in Margate was simply called Dreamland.
+I found a page of the Butlin’s brochure describing their on-site pool one of the most moving pieces of the show, speaking as it did of hard-up 1930s city-dwellers finally finding a holiday destination in which to take their ease. “It’s one of those pools you dreamed about where you can dive without a feeling you might take a couple down with you on the way.” An accompanying photo of a factory trip to the camp, featuring rows and rows of young people beaming their faces off, underlines the point. No wonder an iconic amusement park opened in the 30s in Margate was simply called Dreamland.
 
 ![four streamliners](/Assets/deco-sainsbury-2.jpg)
 
