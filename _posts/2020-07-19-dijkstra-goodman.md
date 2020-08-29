@@ -15,7 +15,7 @@ The boy manspreads aggressively, his big white hairy feet turned out, freed from
 
 It seems like an action photograph, taken on the fly. Though this can’t possibly be true, considering the beautiful lighting and framing, and what we know about the artist’s working methods: she uses two tripods, one for the flash and one for the camera, which takes quite a bit of setting up. So this pair have been sat there for a little while at least, with the photographer clicking away.
 
-The shadows from the trees in Sefton Park are quite lengthly, it must be after school hours. Something about the uniform, the bare feet, the palpable ennui takes me back to my own school days, 20 years and more ago; how being a teenager sometimes felt like an eternal late afternoon in early summer, waiting for the weather to break, or at least for the opportunity to wear more comfortable clothes. My feet twist in recognition.
+The shadows from the trees in Sefton Park are quite lengthly, it must be after school hours. Something about the uniform, the bare feet, the palpable ennui takes me back to my own school days, 20 years and more ago; how being a teenager sometimes felt like an eternal late afternoon in early summer, waiting for the weather to break, or at least for the opportunity to wear something more comfortable. My feet twist in recognition.
 
 In Dijkstra’s photos, according to the show notes “time is embodied to reveal transitory moments or passages of change; how exchange between sitter, photographer and spectator is both contingent and resonant; and photography’s revelation and reflection of the self”. Well, exactly!
 
