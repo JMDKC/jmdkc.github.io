@@ -5,7 +5,7 @@ title: Derek Jarman - My garden’s boundaries are the horizon
 
 London’s Garden Museum is a lovely, peaceful enclave on the Southwark riverfront, adjoining Lambeth Palace. A nice contrast to the subject of [its latest exhibition](https://gardenmuseum.org.uk/exhibitions/derek-jarman-my-gardens-boundaries-are-the-horizon/), who’s one of the very angriest  artists of the last few decades: Derek Jarman.
 
-As well as a filmmaker and painter, specialising in naked guys speaking Latin and cludgy black canvases studded with broken glass respectively, Jarman cultivated a famous garden. For the last five years of his life, he lived at Prospect Cottage, close to the nuclear power station in Dungeness. He bought it from money inherited from his father’s will, in the certain knowledge he would be taken by AIDS in a few years.
+Alongside his work as a filmmaker and painter, specialising in naked guys speaking Latin and cludgy black canvases studded with broken glass respectively, Jarman cultivated a famous garden. For the last five years of his life, he lived at Prospect Cottage, close to the nuclear power station in Dungeness. He bought it from money inherited from his father’s will, in the certain knowledge he would be taken by AIDS in a few years.
 
 ![installation view](/Assets/jarman-garden-1.jpg)
 
