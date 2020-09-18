@@ -11,7 +11,7 @@ As productive as ever, Picasso painted, sculpted, drew and cast thousands of cer
 
 I loved the playful, fun vases and plates, painted in bright colours with smiling faces. There’s also a fine ceramic relief in profile of poor doomed Jacqueline, done up like a pagan goddess with vines in her hair. Opposite, a very late (1955) portrait of Dora Maar glowers at us, clad in blue, her chest and shoulders bulging through the fabric like a tamarind.
 
-Some photos of the artist *in situ*, parading through Cannes and lauded by happy townsfolk, highlight the atmosphere in which these easy, sunny works were produced. His reputation had been made, his legend secured, and he continued to enjoy good health - and women like Jacqueline and Dora still fighting over him.
+Some photos of the artist *in situ*, parading through Cannes and lauded by happy townsfolk, highlight the atmosphere in which these easy, sunny works were produced. His reputation had been made, his legend secured, and he continued to enjoy good health. Women like Jacqueline and Dora were still fighting over him.
 
 These are the works of a happy man, enjoying life in the sun.
 
