@@ -15,6 +15,6 @@ Such a vast breadth, such a range of expression from a single subject (herself) 
 
 I’m going to pick out *Cover Girl*, as the National Portrait Gallery has bought all five of the series together since the first time they were shown, in the late 70s. Each shot is a triptych: the original female-fronted magazine cover on the left, Sherman’s best impression of said cover girl in the middle, and the artist’s vampy mockery of the same on the right.
 
-It’s all there: the chameleonic shape-shifter, the daffy humour, the sly undertow - just *what* is behind that wink? I adored this room of cover girls, and this show as a whole. I hope she makes it to 1000.
+It’s all there: the chameleonic shape-shifter, the daffy humour, the sly undertow - just *what* is behind that wink? I adored this room of cover girls, and this show as a whole. I hope she makes it to 1,000 photos.
 
 *Cindy Sherman is at National Portrait Gallery (London). June 27 - September 15 2019*
