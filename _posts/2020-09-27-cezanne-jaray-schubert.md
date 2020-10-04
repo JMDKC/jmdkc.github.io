@@ -17,8 +17,8 @@ The low and uneven light even brought out the humanity in Jaray, whose work has 
 ![for your eyes only](/Assets/cezanne-jaray-schubert-2.jpg)
 *For Your Eyes Only, Pink & Turquoise (2020)*
 
-The light form the window revealed the scratchy, very slightly uneven paint strokes that made up the roundels’ colour blocks.
+The light from the window revealed the scratchy, very slightly uneven paint strokes that made up the roundels’ colour blocks.
 
 And one of them had a little pencilled x on the wall, just to the right of the canvas. It hadn’t quite been hung correctly. This detail, on the damp wall adjoining the uneven floor, seemed just perfect.
 
-*Paul Cezanne: Drawings - Tess Jaray: Roundels is at Karsten Schubert (London). 10 - 30 September 2020*
+*Paul Cézanne: Drawings - Tess Jaray: Roundels is at Karsten Schubert (London). 10 - 30 September 2020*
