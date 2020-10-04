@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Paul Cezanne - Drawings - Tess Jaray - Roundels
+title: Paul Cezanne - Drawings - Tess Jaray - Roundels | Karsten Schubert
 ---
 
 I spent a magical half hour here, in the weakening early autumn sunlight. The viewing room at Karsten Schubert, looking out onto Lexington Street in Soho from the upper floor of an 18th century former townhouse, hosts [two utterly different sets of works](https://karstenschubert.viewingrooms.com/viewing-room/8-paul-cezanne-drawings-tess-jaray-roundels/): Jaray’s mathematical, precise, abstracted pairs of painted roundels, and intimate preparatory sketches and doodles from Cézanne.
