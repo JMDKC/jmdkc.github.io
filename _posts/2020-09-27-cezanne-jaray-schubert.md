@@ -14,7 +14,7 @@ We can make out, just, a Cézanne sketch of overpowering intimacy: the sleeping 
 
 The low and uneven light even brought out the humanity in Jaray, whose work has always seemed a bit academic to me. (No wonder this deeply thoughtful artist is a devotee of Piero della Francesca, that great mathematical experimenter.) 
 
-![](2020-09-27-cezanne-jaray-schubert/cezanne-jaray-schubert-2.jpg)
+![for your eyes only](/Assets/cezanne-jaray-schubert-2.jpg)
 *For Your Eyes Only, Pink & Turquoise (2020)*
 
 The light form the window revealed the scratchy, very slightly uneven paint strokes that made up the roundels’ colour blocks.
