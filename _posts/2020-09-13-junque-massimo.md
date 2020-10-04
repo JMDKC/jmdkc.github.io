@@ -9,7 +9,7 @@ That’s junk in both the literal and slang senses of the word: either worthless
 
 ![installation view](/Assets/junque-massimo-1.jpg)
 
-In the installation view above, you can see a cute Luigi Serafini sculpture, anthropomorphising a stop sign; on the left, there’s a flamboyantly ugly Ashley Bickerton painting with a garlanded frame; and on the back, behind an incongruously tasteful Anthea Hamilton cuboid bench, there’s a print from the king of trash himself, John Walters. 
+In the installation view above, you can see a cute Luigi Serafini sculpture, anthropomorphising a stop sign; on the left, there’s a flamboyantly ugly Ashley Bickerton painting with a garlanded frame; and at the back, behind an incongruously tasteful Anthea Hamilton cuboid bench, there’s a print from the king of trash himself, John Walters. 
 
 It depicts Lassie, the collie dog of wholesome 1940s family film fame, with the kind of evilly enraged eyebrows last seen on Pennywise the clown, star of the considerably less family-oriented film, It.
 
