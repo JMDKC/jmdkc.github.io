@@ -21,4 +21,4 @@ The light form the window revealed the scratchy, very slightly uneven paint stro
 
 And one of them had a little pencilled x on the wall, just to the right of the canvas. It hadn’t quite been hung correctly. This detail, on the damp wall adjoining the uneven floor, seemed just perfect.
 
-*Paul Cezanne: Drawings | Tess Jaray: Roundels is at Karsten Schubert (London). 10 - 30 September 2020*
+*Paul Cezanne: Drawings - Tess Jaray: Roundels is at Karsten Schubert (London). 10 - 30 September 2020*
