@@ -19,7 +19,7 @@ The spookiness of Rosella’s aesthetic extends to much of his photo emulsions f
 ![il traffico](/Assets/rotella-cardi-2.jpg)
 *Il traffico (1965)*
 
-In fact, Rotella and Warhol knew each other slightly, the former living at the Chelsea Hotel in the 1960s, before moving to Paris and, finally, back to Italy.  But Warhol’s premier league reputation has led to his works being buffed to the pristine perfection befitting a Tate audience. Rotella's canvases at Cardi are firmly second division, overlaid with the browning and fading of age - perhaps even neglect. This renders the final images all the more spooky, though it blunteds and deadens the freshness and zing of his art, which must have struck his first audiences, half a century ago.
+In fact, Rotella and Warhol knew each other slightly, the former living at the Chelsea Hotel in the 1960s, before moving to Paris and, finally, back to Italy.  But Warhol’s premier league reputation has led to his works being buffed to the pristine perfection befitting a Tate audience. Rotella's canvases at Cardi are firmly second division, overlaid with the browning and fading of age - perhaps even neglect. This renders the final images all the more spooky, though it blunts and deadens the freshness and zing of his art, which must have struck his first audiences, half a century ago.
 
 This particular factory has long since fallen silent, and gathered rust and dust. I found it all quite poignant.
 
