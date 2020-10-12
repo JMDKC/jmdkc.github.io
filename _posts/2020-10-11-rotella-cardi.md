@@ -14,7 +14,10 @@ As its title suggests, this exhibition works hard to break Rotella out of the po
 
 Elsewhere in the exhibition, there are *photo emulsion* works, where pictures from magazines - again, often ads - are transferred directly to canvas. The final images are made spooky from the random flaws that come about through manual reproduction. Grainy and dissonant. Just like Warhol, the visual interest comes where the mechanical attempt at mechanistic reproduction falls short; the art’s in the errors.
 
-The spookiness of Rosella’s aesthetic extends to much of his most iconic works from the 60s, where media flotsam and jetsam are grainily blown up on canvas: a Fiat 1500 ad of a dark highway here, a still photo of Jackie Kennedy in her brain-spattered Chanel suit there.
+The spookiness of Rosella’s aesthetic extends to much of his photo emulsions from the 60s, where media flotsam and jetsam are grainily blown up on canvas: a Fiat 1500 ad of a dark highway here, a still photo of Jackie Kennedy in her brain-spattered Chanel suit there.
+
+![il traffico](/Assets/rotella-cardi-2.jpg)
+*Il traffico (1965)*
 
 In fact, Rotella and Warhol knew each other slightly, the former living at the Chelsea Hotel in the 1960s, before moving to Paris and, finally, back to Italy.  But while Warhol’s premier league reputation has led to his works being buffed to the pristine perfection befitting a Tate audience, the canvases at Cardi are often overlaid with the browning and fading of age - perhaps even neglect. This renders the final images all the more spooky, though it might have blunted the freshness and zing which must have hit his first audiences, half a century ago.
 
