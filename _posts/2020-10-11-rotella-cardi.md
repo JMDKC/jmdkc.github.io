@@ -14,7 +14,7 @@ As its title suggests, this exhibition works hard to break Rotella out of the po
 
 Elsewhere in the exhibition, there are *photo emulsion* works, where pictures from magazines - again, often ads - are transferred directly to canvas. The final images are changed and distorted - made new - from the random flaws that come about through manual reproduction.
 
-The spookiness of Rosella’s aesthetic comes through most strongly in these photo emulsions from the 60s, where media flotsam and jetsam are grainily blown up on canvas: a Fiat 1500 ad of a dark highway here, a still photo of Jackie Kennedy in her brain-spattered Chanel suit there. Just like Warhol, the visual interest comes where the mechanical attempt at mechanistic reproduction falls short; the art’s in the errors.
+The spookiness of Rosella’s aesthetic comes through most strongly in these photo emulsions from the 60s, where media flotsam and jetsam are grainily blown up on canvas: a Fiat 1500 ad of a dark highway here, a still photo of Jackie Kennedy in her brain-spattered Chanel suit there. Just like Warhol, the visual interest comes where the manual attempt at mechanistic reproduction falls short; the art’s in the errors.
 
 ![il traffico](/Assets/rotella-cardi-2.jpg)
 *Il traffico (1965)*
