@@ -3,18 +3,18 @@ layout: post
 title: Mimmo Rotella Beyond Décollage | Cardi Gallery
 ---
 
-While Andy Warhol’s mega-show [plays across the river at Tate](http://artangled.com/2020/08/08/warhol-tate/), a much less-heralded  friend from Italy has [taken up residence in a quiet street in Mayfair](https://cardigallery.com/exhibitions/mimmo-rotella/). Just like Warhol, Mimmo Rotella was obsessed by the mechanistic over the manual. But instead of glitzy silk screen prints of pop icons and gleamingly new consumer goods, Rotella responded to the post-War boom with a grungy alternative: the *décollage*.
+While Andy Warhol’s mega-show [plays across the river at Tate](http://artangled.com/2020/08/08/warhol-tate/), a much less-heralded  friend from Italy has [taken up residence in a quiet street in Mayfair](https://cardigallery.com/exhibitions/mimmo-rotella/). Just like Warhol, Mimmo Rotella was obsessed by the mechanistic over the manual. But instead of making glitzy silk screen prints of pop icons, Rotella responded to the post-War boom with a grungy alternative: the *décollage*.
 
 In the 1950s, Rotella launched his artistic career by roaming the streets of Rome and tearing advertising posters from the walls, which he then distressed further at home. In doing so, he made the opposite of a collage, where parts of an original intact image are ripped away, to make something new. 
 
 ![venere imperiale](/Assets/rotella-cardi-1.jpg)
 *Venere imperiale (1966)*
 
-As its title suggests, this exhibition works hard to break Rotella out of the poster-ripping stereotype, and focuses on his other work. For example, the picture above, while also using ad posters as source material, is actually an *artypo*: Rosella’s term. For this technique, multiple intact images are overlaid and printed as one, such that they appear as translucent layers. 
+As its title suggests, this exhibition works hard to break Rotella out of the poster-ripping stereotype, and focuses on his other work. For example, the picture above, while also using ad posters as source material, is actually an *artypo*: Rotella’s term. For this technique, multiple intact images are overlaid and printed as one, such that they appear as translucent layers. 
 
-Elsewhere in the exhibition, there are *photo emulsion* works, where pictures from magazines - again, often ads - are transferred directly to canvas. The final images are made spooky from the random flaws that come about through manual reproduction. Grainy and dissonant. Just like Warhol, the visual interest comes where the mechanical attempt at mechanistic reproduction falls short; the art’s in the errors.
+Elsewhere in the exhibition, there are *photo emulsion* works, where pictures from magazines - again, often ads - are transferred directly to canvas. The final images are changed and distorted - made new - from the random flaws that come about through manual reproduction.
 
-The spookiness of Rosella’s aesthetic extends to much of his photo emulsions from the 60s, where media flotsam and jetsam are grainily blown up on canvas: a Fiat 1500 ad of a dark highway here, a still photo of Jackie Kennedy in her brain-spattered Chanel suit there.
+The spookiness of Rosella’s aesthetic comes through most strongly in these photo emulsions from the 60s, where media flotsam and jetsam are grainily blown up on canvas: a Fiat 1500 ad of a dark highway here, a still photo of Jackie Kennedy in her brain-spattered Chanel suit there. Just like Warhol, the visual interest comes where the mechanical attempt at mechanistic reproduction falls short; the art’s in the errors.
 
 ![il traffico](/Assets/rotella-cardi-2.jpg)
 *Il traffico (1965)*
