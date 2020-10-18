@@ -5,7 +5,7 @@ title: Gary Hume - Archipelago | Sprüth Magers
 
 When I think of Gary Hume’s work, it’s a particular texture that comes to mind first. Glossy paint on ultra-flat aluminium, standing up in ridges. Frameless, the only sign of the human touch is the occasionally streaked paint running down the sides of the metal block. Then comes the feeling I get when I look at these paintings: serenity.
 
-Archipelago, Hume’s latest exhibition at Sprüth Magers, brings that serene approach to some troubling source material. The gloss on aluminium paintings all show repeated u-shaped designs, with the arch of the letter in a keyhole shape. These are *Life jackets*, representing those worn by migrants risking their lives on overcrowded dinghies and boats, on their way over the English Channel. Fleeing one “hostile environment” for another.
+*Archipelago*, Hume’s [latest exhibition at Sprüth Magers](https://spruethmagers.com/exhibitions/gary-hume-archipelago-london/), brings that serene approach to some troubling source material. The gloss on aluminium paintings all show repeated u-shaped designs, with the arch of the letter in a keyhole shape. These are *Life jackets*, representing those worn by migrants risking their lives on overcrowded dinghies and boats, on their way over the English Channel. Fleeing one “hostile environment” for another.
 
 ![archipelago 3](/Assets/hume-magers-1.jpg)
 *Archipelago 3*
