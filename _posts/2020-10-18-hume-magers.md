@@ -14,8 +14,8 @@ Hume, looking past that, sees “a much more ancient image of the potential for 
 
 Meditation won’t be on the mind of those desperate sailors, on the roiling waves of the sea, hearts beating fast under threat of drowning. And, far from life giving, isn’t there something sinisterly inert about those hard ridges of paint, in their various shades of grey and green?
 
-On the other hand, in the midst of life we are in death - and Hume makes that point elsewhere, in a wall gridded with drawings of gable-roofed buildings like fairy-tale ginger-bread houses and flowers - along with the lifejackets and the aluminium, all part of the artist’s established iconography. The atmosphere’s nice and peaceful as usual, until you read the show notes, and realise that they’re reproductions of newspaper images of children’s drawings. All these children live in war zones, and have had their schools damaged by the conflict.
+On the other hand, in the midst of life we are in death. Hume makes that point elsewhere, in a wall gridded with drawings of gable-roofed buildings like fairy-tale ginger-bread houses and flowers; along with the lifejackets and the aluminium, these images are all part of the artist’s established iconography. The atmosphere’s nice and peaceful as usual, until you read the show notes, and realise that they’re reproductions of newspaper images of children’s drawings. All these children live in war zones, and have had their schools damaged by the conflict. Desperation to serenity, again.
 
-It’s a major achievement for an artist to have such an established, unmistakeable style and subject matter. Is it strong enough though to be equal to such events? You won’t find the answer in that shiny gloss paint, but you’ll want to try.
+It’s a major achievement for an artist to have such an established, unmistakeable style. Is it strong enough though to be equal to such subject matter? You won’t find the answer in that shiny gloss paint, but you’ll want to try.
 
 *Gary Hume: Archipelago is at Sprüth Magers (London). 06 October - 23 December 2020*
