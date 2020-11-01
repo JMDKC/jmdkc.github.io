@@ -1,6 +1,6 @@
 ---
 layout: post
-title: ~~Summer~~ Winter Exhibition | Royal Academy
+title: Summer Exhibition 2020 | Royal Academy
 ---
 
 The Royal Academy has been pretty conservative with its COVID response, tightening capacity by 80% and making pre-booking compulsory for everyone, members included. It seems tighter than Tate (whose Bruce Nauman show, which I also visited this week, was pretty full). Or maybe it’s the nature of [its Summer Exhibition](https://www.royalacademy.org.uk/exhibition/summer-exhibition-2020), delayed by lockdown, with over 1,000 works crowding the walls of the main galleries, that makes the relative paucity of the crowds stand out still more.
