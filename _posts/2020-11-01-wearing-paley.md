@@ -10,7 +10,7 @@ In each of the [fourteen self portraits on show at Maureen Paley](https://www.ma
 ![gillian wearing - lockdown portrait](/Assets/wearing-paley-1.jpg)
 *Untitled (lockdown portrait)*
 
-Wearing is a clear-eyed but quite pitiless observer as a painter. A [Guardian review of the show](https://www.theguardian.com/artanddesign/2020/sep/16/gillian-wearing-lockdown-self-portraits-maureen-paley-gallery) reveals that she did quite a lot of the paintings with a mirror, both others were painted from photographs - an extra remove. They are images of images, not drawn from life.
+Wearing is a clear-eyed but quite pitiless observer as a painter. A [Guardian review of the show](https://www.theguardian.com/artanddesign/2020/sep/16/gillian-wearing-lockdown-self-portraits-maureen-paley-gallery) reveals that she did quite a lot of the paintings with a mirror, while others were painted from photographs - an extra remove. They are images of images, not drawn from life.
 
 “Having represented myself in photography both as myself and as others, I wanted to see how paint and even the manner of painting could change my appearance,” Wearing says. “These new portraits provide a record of my time spent in lockdown and are an exploration of my image depicted in isolated concentration.”
 
