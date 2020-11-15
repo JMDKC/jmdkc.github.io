@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Interlude- Nicole Eisenman at Secession
+title: Interlude - Nicole Eisenman at Secession
 ---
 
 My abiding feeling on the US presidential election results is totally unoriginal: relief. As messy as the withdrawal will be, it’s likely Trump is on his way - for now. With London on lockdown and the galleries closed, I’ve been thinking today about the various anti-Trump art I’ve seen over the past four years. (I don’t recall seeing any pro-Trump art, [outside of my favourite meme-based Twitter account](https://twitter.com/cursedboomers?lang=en).)
