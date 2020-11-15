@@ -13,6 +13,6 @@ Eisenman’s painting *Dark Light* came to mind first, three years after I saw i
 
 The pearl clutching horror I felt about this pastime, when I first heard of it, has sort of melded in my head with the figure of Trump, his supporters, our warming world. In 2017, looking at *Dark Light* gave me a sense of impending disaster. In late 2020, I’m wondering if the disaster has been averted. This week in particular has offered a glimpse of sun between the clouds.
 
-One of Eisenman’s big influences is George Grocz, that clever caricaturist of Berlin in the 20s. He was also great on atmospheric pollution: so many of his busy, city figures loom at us through a grimy fog, the furniture almost palpably sooty. After the election, here’s hoping Eisenman’s society (my society?) isn’t going the same way his did.
+One of Eisenman’s big influences is George Grosz, that clever caricaturist of Berlin in the 20s. He was also great on atmospheric pollution: so many of his busy, city figures loom at us through a grimy fog, the furniture almost palpably sooty. After the election, here’s hoping Eisenman’s society (my society?) isn’t going the same way his did.
 
 *Nicole Eisenman: Dark Light was at Secession (Vienna). 14 September - 05 November 2017*
