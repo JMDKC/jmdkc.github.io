@@ -24,4 +24,4 @@ Sadly, Bugada & Cargnel quietly closed its gallery space later in the year I vis
 
 I’d just love to be back there. So I wrote about it instead.
 
-*Théo Mercier: Panorama Zéro was at Bugada & Cargnel (Paris). 24 February - 02 June 2020*
+*Théo Mercier: Panorama Zéro was at Bugada & Cargnel (Paris). 24 February - 02 June 2017*

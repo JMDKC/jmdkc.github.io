@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Derek Jarman - My garden’s boundaries are the horizon
+title: Derek Jarman - My garden’s boundaries are the horizon | Garden Museum
 ---
 
 London’s Garden Museum is a lovely, peaceful enclave on the Southwark riverfront, adjoining Lambeth Palace. A nice contrast to the subject of [its latest exhibition](https://gardenmuseum.org.uk/exhibitions/derek-jarman-my-gardens-boundaries-are-the-horizon/), who’s one of the very angriest  artists of the last few decades: Derek Jarman.
