@@ -12,7 +12,7 @@ When I think of Gary Hume’s work, it’s a particular texture that comes to mi
 
 Hume, looking past that, sees “a much more ancient image of the potential for life, and the celebration of life, which is a yoni”. In a video shot by the gallery to accompany the show, he says that, “at their best”, they are “meditative, formal paintings”. 
 
-Meditation won’t be on the mind of those desperate sailors, on the roiling waves of the sea, hearts beating fast under threat of drowning. And, far from life giving, isn’t there something sinisterly inert about those hard ridges of paint, in their various shades of grey and green?
+Meditation or gynaecology likely isn't top of mind for those desperate sailors, on the roiling waves of the sea, hearts beating fast under threat of drowning. And, far from life giving, isn’t there something sinisterly inert about those hard ridges of paint, in their various shades of grey and green?
 
 On the other hand, in the midst of life we are in death. Hume makes that point elsewhere, in a wall gridded with drawings of gable-roofed buildings like fairy-tale ginger-bread houses and flowers; along with the lifejackets and the aluminium, these images are all part of the artist’s established iconography. The atmosphere’s nice and peaceful as usual, until you read the show notes, and realise that they’re reproductions of newspaper images of children’s drawings. All these children live in war zones, and have had their schools damaged by the conflict. Desperation to serenity, again.
 
