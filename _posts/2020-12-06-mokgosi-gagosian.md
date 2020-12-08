@@ -3,15 +3,15 @@ layout: post
 title: Meleko Mokgosi - Democratic Intuition | Gagosian
 ---
 
-I always found the security guards at Gagosian galleries to be seriously OTT. And even more so this visit, with London fresh out of lockdown and the city’s residents more likely to catch up on their Christmas shopping than catch up on new exhibitions on a Saturday afternoon. That, coupled with the fact the gallery’s gone appointment-only, meant that I had [this show](https://gagosian.com/exhibitions/2020/meleko-mokgosi-democratic-intuition/) all to myself. Well, more accurately, I shared each room of Gagosian’s massive space on Britannia Street with a black mask-and-suit clad guard - and nobody else.
+I've always found the amount of security guards at Gagosian galleries a bit over the top. And even more so this visit, with London fresh out of lockdown and the city’s residents more likely to catch up on their Christmas shopping than catch up on new exhibitions on a Saturday afternoon. That, coupled with the fact the gallery’s gone appointment-only, meant that I had [this show](https://gagosian.com/exhibitions/2020/meleko-mokgosi-democratic-intuition/) all to myself. Well, more accurately, I shared each room of Gagosian’s massive space on Britannia Street with a black mask-and-suit clad guard - and nobody else.
 
-The size of the gallery was definitely befitting of the grand scale of Meleko Mokgosi’s work though.  The 21 panels that fill the walls of the main gallery, depicting mainly everyday work scenes from southern Africa - Mokgosi was born in Botswana and works in the US - is only one part of the grand project known as *Democratic Intuition*. This project, begun by the artist in 2014, aims to demonstrate that, while democracy is something to strive for, it’s also not naturally compatible with human nature.
+The size of the gallery's definitely befitting of the grand scale of Meleko Mokgosi’s work. The 21 panels that fill the walls of the main room is only one part of the grand project known as *Democratic Intuition*. This project, begun by the artist in 2014, aims to demonstrate that, while democracy is something to strive for, it’s also not naturally compatible with human nature.
 
 ![installation view](/Assets/mokgosi-gagosian-1.jpg)
 
 Or, more specifically, Mokgosi says: “Democracy is incompatible with structural racism and institutionalized or systemic violence; democracy is incompatible with neocolonialism and neo-imperialism; democracy is incompatible with the instruments that reproduce the conditions for and possibilities of capitalism; democracy is incompatible with race discourse.”
 
-Across these 21 panels, generally, girls and women are at work, men are at leisure. These scenes of everyday life are freighted with political concerns: schoolgirls are portrayed, in acrylics and oils on raw canvas, doing hard manual labour. A Black nanny embraces white children. A young boy reclines in a wicker chair, clad in sunglasses. Taken together, these scenes of everyday life attain grandeur, though I have to admit, most of that is from the sheer scale of the work.
+Across these 21 panels, featuring everyday scenes from southern Africa, girls and women are at work, men are at leisure. The scenes of everyday life are freighted with political concerns: schoolgirls are portrayed, in acrylics and oils on raw canvas, doing hard manual labour. A Black nanny embraces white children. A young boy reclines in a wicker chair, clad in sunglasses and flanked by two older shirtless boys. Taken together, these scenes of everyday life attain grandeur; a grandeur that comes as much from the sheer scale of the work as its political concerns.
 
 ![installation view](/Assets/mokgosi-gagosian-2.jpg)
 
