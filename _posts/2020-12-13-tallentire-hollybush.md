@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Anne Talentire - As Happens | Hollybush Gardens
+title: Anne Tallentire - As Happens | Hollybush Gardens
 ---
 
 The works in [this small exhibition](http://hollybushgardens.co.uk/wp/wp-content/uploads/0052_Hollybush-Gardens_Issue-8_Digital_3.pdf) are grouped around the idea of scale - measurements. In the main room, Anne Tallentire shows us *Area*, wall-mounted, flat-coloured MDF panels corresponding to the dimensions, rather than the appearance, of objects in the communal area of a public housing complex in Graz: the work was first shown in that city in 2018.
